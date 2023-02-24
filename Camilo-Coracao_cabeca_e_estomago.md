@@ -92,263 +92,256 @@ Eu sei mais alguma coisa que merece crónica.
 Leontina subjugou o ânimo do marido; descobriu que ele era rico e gozou quanto podia das regalias do mundo, as quais vivera estranha até aos vinte e quatro anos. O ourives tomou gosto aos prazeres e esqueceu o valor do dinheiro, excepto o que dava às filhas, que lhe saía da secretária com pedaços de vida. Começaram pelos arlequins e pelos touros e acabaram no Teatro de S. Carlos o refinamento do gosto.
 Leontina andou falada na sua roda, como esposa fiel e admirável vencedora de tentações. Quase todos os amigos particulares do marido a cortejaram, sem resultado. Deu bailes em sua casa, donde era frequente saírem os convidados penhorados, às quatro horas da manhã; mas, duma vez, não saíram todos; ficou um escondido no quarto da criada, e lá passou o dia seguinte. O ourives ignorou muito tempo que a sua lealdade não era dignamente correspondida: porém, suspeitando um dia que a criada o roubava, fez-lhe uma visita domiciliária ao quarto, sem prevenir a esposa, e achou lá o filho do seu primo Anselmo, dormindo sobre a cama da moça, com a segurança de quem dorme em sua casa. Estava de moiras amarelas e vestia um chambre de lã do dono da casa! É o escândalo e mangação!
 Foi chamada Leontina a altos gritos. Acordou o filho de Anselmo e foi procurar na algibeira do paletó um revólver. O quinquagenário viu cinco bocas de ferro, mais persuasivas que a boca de ouro de Crisóstomo, o santo. Passou ao andar de baixo e gritou pelo código criminal. Leontina tinha fugido para casa da sua amiga e vizinha D. Carlota, pessoa de hipotética probidade. O escandaloso possessor do chambre despiu-o, vestiu-se, sacudiu as moiras amarelas, sentou-se a calçar as botas, acendeu um charuto, desceu as escadas serenamente e encontrou-se no pátio com dois cabos de polícia e um municipal. Dali foi para o administrador, que o mandou reter até ulteriores explicações.
-     Leontina, dias depois, foi para o Convento da Encarnação, onde esteve dois anos e donde saiu a tomar caldas em Torres Vedras, por consenso do marido, que a foi lá visitar e de lá foi com ela à exposição à Londres. Da volta da viagem, o ourives morreu hidrópico, legando às filhas umas inscrições, que rendem para ambas um cruzado diário, e à esposa uma independência farta em títulos bancários e em géneros de ourivesaria.
-     Consta-me que Leontina se lembrara então de Silvestre; mas ignorava que destino ele tivesse. Incumbiu um compadre de indagar se estava no Porto o homem; a resposta demorou-se alguns dias, sete, creio eu, e ao sexto já ela estava em indagações da vida e costumes dum sujeito de bigode e pêra, que à mesma hora de cada tarde lhe passava à porta num tiburi, tirado por uma orça. Fácil lhe foi saber que o sujeito fora, cinco anos antes, algibebe, tirara o prémio da Lotaria de Espanha e fechara a loja. Era o mesmo algibebe que levara no colete de veludinho com a casca de melão. Que mudança de cara e de maneiras ele fizera! O dinheiro faz essas mudanças e outras mais espantosas ainda. Chegaram à fala, deram-se explicações e casaram. Eu tive ocasião de os ver ontem no seu palacete a Buenos Aires. Estão gordos, ricos e muito considerados na sua rua.
+Leontina, dias depois, foi para o Convento da Encarnação, onde esteve dois anos e donde saiu a tomar caldas em Torres Vedras, por consenso do marido, que a foi lá visitar e de lá foi com ela à exposição à Londres. Da volta da viagem, o ourives morreu hidrópico, legando às filhas umas inscrições, que rendem para ambas um cruzado diário, e à esposa uma independência farta em títulos bancários e em géneros de ourivesaria.
+Consta-me que Leontina se lembrara então de Silvestre; mas ignorava que destino ele tivesse. Incumbiu um compadre de indagar se estava no Porto o homem; a resposta demorou-se alguns dias, sete, creio eu, e ao sexto já ela estava em indagações da vida e costumes dum sujeito de bigode e pêra, que à mesma hora de cada tarde lhe passava à porta num tiburi, tirado por uma orça. Fácil lhe foi saber que o sujeito fora, cinco anos antes, algibebe, tirara o prémio da Lotaria de Espanha e fechara a loja. Era o mesmo algibebe que levara no colete de veludinho com a casca de melão. Que mudança de cara e de maneiras ele fizera! O dinheiro faz essas mudanças e outras mais espantosas ainda. Chegaram à fala, deram-se explicações e casaram. Eu tive ocasião de os ver ontem no seu palacete a Buenos Aires. Estão gordos, ricos e muito considerados na sua rua.
+     
+II
+     
+A segunda era também minha vizinha. A casa em que eu vivia formava o cunhal dum quarteirão, com janelas para duas ruas. Assim podia passear os dois corações duma para outra janela sem dar suspeitas da minha doblez.
+Nunca pude saber o nome da dama, nem lhe vi a preceito a cara. Entreluziam-lhe os olhos nas tabuinhas verdes das persianas, olhos que abonavam o restante das belezas. Vi-a uma ou outra vez na rua; mas o meu pudor era o mais vigilante anjo-da-guarda que ele tinha. Escrevi-lhe uma carta em vinte páginas e icei-lhe numa cartonagem de amêndoas, que ela, à meia-noite, pendurou da janela. No dia seguinte não a vi. Afligi-me até à desesperação, tomando como zombaria semelhante resposta à minha carta. Desafoguei na sincera amizade de um amigo, e este consolou-me, dizendo que a mulher podia estar doente, podia estar apaixonada; e, na segunda hipótese, fugia à paixão para respeitar os deveres, se os tinha.
+Ao outro dia abriu-se a janela, e a persiana baixou logo, como era de uso. As tabuinhas obedeceram ao impulso da mão divina, ficando horizontais. Vi-lhe os olhos, vi-lhe o sorriso, vi-lhe um trejeito de gratidão, e compreendi que me mandava ir à meia-noite debaixo da janela.
+Fui com uma legião de amorinhos a volitar ao redor de mim. A patrulha viu-me atravessar a rua e conheceu, pelo passo, que eu era um mortal ditoso. Parou quando eu parei. Perguntou-me o que fazia eu ali quieto. Respondi-lhe que tomava a fresca; e os janízaros responderam: “Veja lá que se não constipe...”.
+Daí a pouco desceu a coifinha com um bilhete em abraço e eu lancei na coifa uma poesia intitulada: Ela!
+Entrei no meu quarto, abri o papelucho, e li:
+     
+Gosto muito do seu estilo. Continue, que me entretém. Ontem não lhe apareci porque fui a Oeiras, e li a sua carta na presença de Neptuno. Escreva muito, que escreve muito bem.
+     
+Reli esta coisa e pus a mão sobre o coração injuriado. Não podia dormir. Saí a resfriar a cabeça para não a partir em casa. O escárnio ia atrás de mim, apupando-me. Parei na azinhaga do Arco do Cego e senti-me febril. Às cinco horas da manhã, fui a uma das barcaças e tomei um banho no Tejo. Recolhi-me com uma catarral e estive onze dias de cama. Quando me ergui, magro e lívido, ouvi dizer à dona da casa que o galego, aguadeiro da casa fronteira, viera duas vezes perguntar por mim, com ordem de alguém. O espinho da irrisão, o tremendo ridículo, salvou a minha dignidade. Nunca mais abri aquela janela, nem vi mais a vizinha. Assim terminou o meu segundo amor.
+Um caso me fez saber quem era aquela senhora, que eu desculpo e até respeito. Fora menina de finíssima educação, natural de Beja. Apaixonou-se por um conde de Lisboa e fugiu aos pais, cuidando que a ignomínia lhe viria a dar um marido. O conde deu-lhe casa, mesada e criados. Assim estava vivendo quando a conheci. Era amarga a existência da pobre senhora. O amante casara meses antes, para desempenhar o vínculo deteriorado. Do Património da esposa alargou a mesada à amante, que bebia. Deus sabe com que lágrimas, este segundo cálice de vilipendiosa dependência. Escrevera ela nesse tempo ao pai, pedindo-lhe perdão e asilo. Nunca teve resposta. Quando me deram estes esclarecimentos (1854), continuava ela a viver a expensas do conde e tinha um filho de cinco anos. Não sei mais nada. Ainda há pouco li o bilhete, recebido em 1849, e achei-lhe muitíssima graça. Deus lhe perdoe a noite que me deu e os onze dias de catarro, que me estragaram os brônquios para sempre!
+Era a terceira uma dama quarentona, que frequentava a casa em que eu me hospedara. Tinha ela um mano, muito mal-encarado e vestido marcialmente, como capitão da carta, que era. A Sra. D. Catarina bailava gentilmente, conversava com todos os pespontos de tagarela muito lida em Eugenio Sue e conhecia todos os atalhos que conduzem à posse dum coração noviço. Declarou-se comigo e eu, urbanamente, acudi ao seu pejo, confessando que já me tinha primeiro confessado com a eloquência do silêncio. Trocamos algumas cartas, e numa das suas me disse ela que era proprietária de bens de raiz, que valiam seis contos de réis, e tinha, afora isso, uns dez burrinhos em Cacilhas, que anualmente lhe rendiam cento e cinquenta mil réis. Cuidou que me seduzia com o suplemento dos burrinhos! Respeito muito os burros, mas tanto não! Não respondi a este artigo. Falei-lhe do meu coração, assunto sublime de mais para ser conspurcado no cadastro dos lucros provenientes do dote quadrúpede de D. Catarina.
+Uma noite, foi-me concedido ir falar-lhe debaixo das janelas. Morava ela muito longe, em rua de raros moradores, numa casa de um só andar. Tinha eu de costume ir a cavalo até à entrada da rua, e ali me ficava esperando o criado. Foi a minha salvação uma noite! O capitão da carta ergueu-se desconfiado e entrou de espada em punho no quarto da irmã subitamente.
+Era em agosto: estava aberta a janela, e nós, sem invocarmos Klopstock, como os amorosos de Goethe, mirávamos as duas ursas, se eram as ursas umas grandes estrelas que Catarina chamava suas, e das quais fazia favor de me dar uma.
+Cortado este doce colóquio pelo bruto de gládio nu, saltei da janela à rua, e o ferocíssimo capitão saltou nas minhas costas, tendo-lhe eu apenas a vantagem de três passos em honrosa fuga. O homem tinha desnocado um pé no salto e perdera a esperança de me degolar. Gritou: “Agarra”, e a tempo que eu cavalgava, deixando o criado em risco de ser preso e no maior risco de me denunciar.
+No dia seguinte, escreveu-me Catarina apelando para o meu cavalheirismo. Dava-se como perdida no conceito do mundo e do irmão se eu não me desse pressa em casar com ela. Respondi com sinceridade que era muito novo para tomar um estado a que não estava de modo nenhum obrigado o meu cavalheirismo. Aquele dizer “de modo nenhum” feriu tão dentro a susceptibilidade da dama, que, em vez de réplica escrita, veio ela mesma pedir-me explicações com furial aspecto e trejeitos de energúmena. Tomei-lhe medo; mas nem assim casei. Quem tinha resistido à sedução dos burrinhos não sucumbia às ameaças da espada ferina do irmão, a qual, a meu ver, podia disputar virgindade às vestais romanas. Catarina é que, já dez anos antes de me ver, não podia competir em recato e pureza com a espada fraterna. Eu disse-lhe isto em linguagem oriental, e ela respondeu-me em termos que depunham inexoráveis contra a inocência de costumes que a colérica senhora alegava.
+Acabou isto assim. O bravo oficial portou-se bem comigo, daí em diante. A senhora caiu em si e viu que não tinha razão. Deixou-me.
+Cinco anos depois, pedi em Lisboa notícias da Sra. D. Catarina, e soube que ela estava no Pará com seu irmão, senhores de alguns centenares de contos, herdados de um tio. Esperavam-se então na corte, visto que D. Catarina mandara comprar um palácio arruinado em Benfica e apressar a reedificação com a máxima opulência de arquitectura. Perguntei pelos burrinhos de Cacilhas, e o maganão a quem fiz a pergunta disse-me que procurasse uns no Ministério e outros no Parlamento. Era um destes Voltaires do Chiado que fazem espírito, mesmo à custa dos seus parentes e amigos.
      
      
+III
      
-     II
-     
-     A segunda era também minha vizinha. A casa em que eu vivia formava o cunhal dum quarteirão, com janelas para duas ruas. Assim podia passear os dois corações duma para outra janela sem dar suspeitas da minha doblez.
-     Nunca pude saber o nome da dama, nem lhe vi a preceito a cara. Entreluziam-lhe os olhos nas tabuinhas verdes das persianas, olhos que abonavam o restante das belezas. Vi-a uma ou outra vez na rua; mas o meu pudor era o mais vigilante anjo-da-guarda que ele tinha. Escrevi-lhe uma carta em vinte páginas e icei-lhe numa cartonagem de amêndoas, que ela, à meia-noite, pendurou da janela. No dia seguinte não a vi. Afligi-me até à desesperação, tomando como zombaria semelhante resposta à minha carta. Desafoguei na sincera amizade de um amigo, e este consolou-me, dizendo que a mulher podia estar doente, podia estar apaixonada; e, na segunda hipótese, fugia à paixão para respeitar os deveres, se os tinha.
-     Ao outro dia abriu-se a janela, e a persiana baixou logo, como era de uso. As tabuinhas obedeceram ao impulso da mão divina, ficando horizontais. Vi-lhe os olhos, vi-lhe o sorriso, vi-lhe um trejeito de gratidão, e compreendi que me mandava ir à meia-noite debaixo da janela.
-     Fui com uma legião de amorinhos a volitar ao redor de mim. A patrulha viu-me atravessar a rua e conheceu, pelo passo, que eu era um mortal ditoso. Parou quando eu parei. Perguntou-me o que fazia eu ali quieto. Respondi-lhe que tomava a fresca; e os janízaros responderam: “Veja lá que se não constipe...”.
-     Daí a pouco desceu a coifinha com um bilhete em abraço e eu lancei na coifa uma poesia intitulada: Ela!
-     Entrei no meu quarto, abri o papelucho, e li:
-     
-     Gosto muito do seu estilo. Continue, que me entretém. Ontem não lhe apareci porque fui a Oeiras, e li a sua carta na presença de Neptuno. Escreva muito, que escreve muito bem.
-     
-     Reli esta coisa e pus a mão sobre o coração injuriado. Não podia dormir. Saí a resfriar a cabeça para não a partir em casa. O escárnio ia atrás de mim, apupando-me. Parei na azinhaga do Arco do Cego e senti-me febril. Às cinco horas da manhã, fui a uma das barcaças e tomei um banho no Tejo. Recolhi-me com uma catarral e estive onze dias de cama. Quando me ergui, magro e lívido, ouvi dizer à dona da casa que o galego, aguadeiro da casa fronteira, viera duas vezes perguntar por mim, com ordem de alguém. O espinho da irrisão, o tremendo ridículo, salvou a minha dignidade. Nunca mais abri aquela janela, nem vi mais a vizinha. Assim terminou o meu segundo amor.
-     Um caso me fez saber quem era aquela senhora, que eu desculpo e até respeito. Fora menina de finíssima educação, natural de Beja. Apaixonou-se por um conde de Lisboa e fugiu aos pais, cuidando que a ignomínia lhe viria a dar um marido. O conde deu-lhe casa, mesada e criados. Assim estava vivendo quando a conheci. Era amarga a existência da pobre senhora. O amante casara meses antes, para desempenhar o vínculo deteriorado. Do Património da esposa alargou a mesada à amante, que bebia. Deus sabe com que lágrimas, este segundo cálice de vilipendiosa dependência. Escrevera ela nesse tempo ao pai, pedindo-lhe perdão e asilo. Nunca teve resposta. Quando me deram estes esclarecimentos (1854), continuava ela a viver a expensas do conde e tinha um filho de cinco anos. Não sei mais nada. Ainda há pouco li o bilhete, recebido em 1849, e achei-lhe muitíssima graça. Deus lhe perdoe a noite que me deu e os onze dias de catarro, que me estragaram os brônquios para sempre!
-     Era a terceira uma dama quarentona, que frequentava a casa em que eu me hospedara. Tinha ela um mano, muito mal-encarado e vestido marcialmente, como capitão da carta, que era. A Sra. D. Catarina bailava gentilmente, conversava com todos os pespontos de tagarela muito lida em Eugenio Sue e conhecia todos os atalhos que conduzem à posse dum coração noviço. Declarou-se comigo e eu, urbanamente, acudi ao seu pejo, confessando que já me tinha primeiro confessado com a eloquência do silêncio. Trocamos algumas cartas, e numa das suas me disse ela que era proprietária de bens de raiz, que valiam seis contos de réis, e tinha, afora isso, uns dez burrinhos em Cacilhas, que anualmente lhe rendiam cento e cinquenta mil réis. Cuidou que me seduzia com o suplemento dos burrinhos! Respeito muito os burros, mas tanto não! Não respondi a este artigo. Falei-lhe do meu coração, assunto sublime de mais para ser conspurcado no cadastro dos lucros provenientes do dote quadrúpede de D. Catarina.
-     Uma noite, foi-me concedido ir falar-lhe debaixo das janelas. Morava ela muito longe, em rua de raros moradores, numa casa de um só andar. Tinha eu de costume ir a cavalo até à entrada da rua, e ali me ficava esperando o criado. Foi a minha salvação uma noite! O capitão da carta ergueu-se desconfiado e entrou de espada em punho no quarto da irmã subitamente.
-     Era em agosto: estava aberta a janela, e nós, sem invocarmos Klopstock, como os amorosos de Goethe, mirávamos as duas ursas, se eram as ursas umas grandes estrelas que Catarina chamava suas, e das quais fazia favor de me dar uma.
-     Cortado este doce colóquio pelo bruto de gládio nu, saltei da janela à rua, e o ferocíssimo capitão saltou nas minhas costas, tendo-lhe eu apenas a vantagem de três passos em honrosa fuga. O homem tinha desnocado um pé no salto e perdera a esperança de me degolar. Gritou: “Agarra”, e a tempo que eu cavalgava, deixando o criado em risco de ser preso e no maior risco de me denunciar.
-     No dia seguinte, escreveu-me Catarina apelando para o meu cavalheirismo. Dava-se como perdida no conceito do mundo e do irmão se eu não me desse pressa em casar com ela. Respondi com sinceridade que era muito novo para tomar um estado a que não estava de modo nenhum obrigado o meu cavalheirismo. Aquele dizer “de modo nenhum” feriu tão dentro a susceptibilidade da dama, que, em vez de réplica escrita, veio ela mesma pedir-me explicações com furial aspecto e trejeitos de energúmena. Tomei-lhe medo; mas nem assim casei. Quem tinha resistido à sedução dos burrinhos não sucumbia às ameaças da espada ferina do irmão, a qual, a meu ver, podia disputar virgindade às vestais romanas. Catarina é que, já dez anos antes de me ver, não podia competir em recato e pureza com a espada fraterna. Eu disse-lhe isto em linguagem oriental, e ela respondeu-me em termos que depunham inexoráveis contra a inocência de costumes que a colérica senhora alegava.
-     Acabou isto assim. O bravo oficial portou-se bem comigo, daí em diante. A senhora caiu em si e viu que não tinha razão. Deixou-me.
-     Cinco anos depois, pedi em Lisboa notícias da Sra. D. Catarina, e soube que ela estava no Pará com seu irmão, senhores de alguns centenares de contos, herdados de um tio. Esperavam-se então na corte, visto que D. Catarina mandara comprar um palácio arruinado em Benfica e apressar a reedificação com a máxima opulência de arquitectura. Perguntei pelos burrinhos de Cacilhas, e o maganão a quem fiz a pergunta disse-me que procurasse uns no Ministério e outros no Parlamento. Era um destes Voltaires do Chiado que fazem espírito, mesmo à custa dos seus parentes e amigos.
-     
-     
-     
-     III
-     
-     Ninguém me há de acreditar a história da quarta mulher. Quer creiam, quer não, ela ai vai com pouca arte, a ver se a sua mesma desnudez a faz menos incrível.
-     Fui um dia de agosto a Porto Brandão, onde estava a banhos um meu amigo. Numa quinta para lá da encosta houve uma reunião de famílias de Lisboa, à qual fui convidado. O meu amigo apresentou-me a um cavalheiro, que me tomou o braço e me apresentou a algumas senhoras, todas galantes, palreiras e doutoras em Paulo de Kock.
-     Pedi miúdos esclarecimentos acerca de todas, e particularmente da mais bonita e modesta. O cavalheiro de todas disse mal, mal, porém, que eu indultei cordialmente, defeitos que são enfeites, vícios que alindam as formosas e denigrem as feias. O crime de todas era a casquilhice, que o leitor pode, se quiser, traduzir para coquetterie. Amavam toda a gente, segundo o informador. Fiquei satisfeito, cuidando que o amarem elas toda a gente era boa probabilidade para eu ser amado. Eu não queria mais nada.
-     Languiram em doce ternura meus olhos, fitos na mais amável das quatro. Algumas vezes nossas vistas se encontraram, e disseram profundos mistérios da alma. Fugi outras vezes da sala e fui a uma varanda, donde se ouvia o bramido do oceano, casar as melodias do meu amor com as dissonâncias formidolosas do estrugir das ondas. A lua prateava-me a testa, em que o sangue, aquecido no coração, subia em arquejos daquela poesia, que não sai em rimas, e enlouquece, se a paixão a não desafoga em suspiros. Aquilo é que era!
-     Eu queria comunicar a exuberância da minha ventura, mas tive sempre para mim que a felicidade quer-se recatada para não suscitar invejas: é ela como a fina essência das flores destiladas, que perde o aroma, destapado o cristal que a encerra. Não contei nada ao meu amigo; simulei até desapego das mulheres mais belas do baile, e da preferida nem se quer falei.
-     Ao romper de alva, vi que um rancho de meninas desciam ao jardim e colhiam flores. A minha amada ficou à janela conversando com senhoras idosas. “Tragam-me a mim uma rosa de musgo”, disse ela às amigas. E as amigas volveram sem a rosa. Desci ao jardim, colhi duas rosas aljofradas das lágrimas da aurora, pedi licença para lhes oferecer, e disse: “Não as enxuguei, para não privar as florinhas das carícias de um anjo.”
-     Este meu dito foi celebrado em Porto Brandão.
-     Daqui encetámos um colóquio, em que o meu acanhamento foi digno de lástima. Perguntei-lhe abruptamente onde morava; e ela, com a mais casta naturalidade, respondeu-me:
-     - Moro na rua da Rosa das Partilhas, n.º 101, segundo andar.
-     Naquele dia vim para Lisboa, visto que o meu amigo se retirava. Quinze dias seguidos fui à Rua da Rosa, e vi sempre fechadas as janelas do segundo andar.
-     Defronte morava uma estanqueira. Afreguesei-me para lhe captar a benevolência: e, ao décimo sexto dia, perguntei-lhe quem morava naquela casa.
-     - Ali mora um sujeito que é empregado no contrato do tabaco - disse ela.
-     - E tem família?
-     - Tem sim senhor. Vejo lá umas duas ou três meninas que me parecem irmãs dele, ou coisa parecida.
-     - Uma de olhos pretos e cabelos cor de azeviche, será irmã?
-     - a falar-lhe a verdade, senhor, a cor que ela tem nos olhos e no cabelo na sei. Ali há uma bonitota, que é mais triste que as outras e está sempre a ler, aos dias santos. As outras têm assim um ar de doidas, que faz rir a gente. Namoram de lenço branco e à meia-noite estão à janela a papaguear para a rua, que é mesmo um escândalo. Que eu, a falar a verdade, meto-me cá com a minha vida e não quero saber quem é, nem o que faz, a vizinhança.
-     - Sabe dizer-me onde estão agora?
-     - Estão fora da terra; mas onde, não sei. Ontem andavam lá a lavar a casa; é que não tardam aí.
-     Nesse mesmo dia, à noite, encontrei no Marrare das Sete Portas o cavalheiro que me tinha apresentado à mulher querida, em Porto Brandão. Falámos muito da divertida noitada e nas mulheres que converteram em paraíso terreal a casinha campestre. Ébrio de amor, deixei-me ir ao sabor do coração indiscreto e falei na mulher, cuja imagem me não dera tréguas duma hora ao espírito cobiçoso dela. O sujeito destramente se insinuou na minha confiança e conseguiu que eu lhe dissesse a morada da dama a quem ele me apresentara.
-     Riu-se o indivíduo, e sofreou logo a expansão.
-     - De que ri Vossa Senhoria? - Perguntei com desgosto.
-     Deteve-se o homem a cismar, e respondeu:
-     - Rio da pouca ou nenhuma penetração da mocidade. Não se recorda de eu lhe ter dito que aquelas senhoras amavam toda a gente?
-     - E se o senhor se apaixonar?
-     - Apaixonado estou eu.
-     - Pois pior. Suponha agora que aquela mulher o menospreza e ridiculiza!
-     - Suicido-me!
-     - Isso é asneira, Sr. Silvestre! Olhe eu já amei Clotilde.
-     - Chama-se Clotilde?
-     - Chama. Que nome!, que poesia!, que lirismo!, não acha?
-     - Acho!... Clotilde! Há não sei quê das paixões sanguentas da Idade Média neste nome!... Clotilde! Que bem fadado nome! Tem magia!... Clotilde!... Então o senhor amou-a?
-     - Amei.
-     - E depois?
-     - Apaixonei-me. Pedi-lhe o coração exclusivo, e ela disse-me que o exclusivo do coração só o daria com o exclusivo da mão. Entende o fraseado?
-     - Perfeitíssimamente. Queria dizer que só amaria exclusivamente o marido.
-     - É isso mesmo. Eu era menor, e meu pai negava-me licença para casar. Clotilde era pobre, e eu, sem os benefícios de meu pai, era indigente: Tão inútil homem era eu que fazia versos, e que versos, ó santo Deus!
-     - E ela ama poesia?
-     - Gostava das décimas e embirrava com as odes. Fiz-lhe muita décima: estão todas impressas no Ramalhete. Vamos ao essencial. A paixão cegou-me. Clotilde, sabedora da repugnância de meu pai, parecia disposta a aproveitar o tempo com outro namoro. Suspeitei esta infernal resolução, e... que passo eu dei, Sr. Silvestre!... que passo!...
-     - Que passo deu o senhor?!
-     - Casei com ela!
-     - O quê?! - exclamei eu, varando de agulhadas nos olhos e nos ouvidos.
-     - Casei com Clotilde.
-     - Pois Clotilde é casada?...
-     - Comigo; há cinco anos, quatro meses e nove dias!
-     Dito isto, o empregado público, depois duma gargalhada estridente, afectou a mais cómica das seriedades e continuou:
-     - O senhor não vá contar isso a ninguém, senão arrisca-se a dar mote para uma farsa, e lembre-se que o personagem mais ridículo dela será o Sr. Silvestre da Silva, com cuja candura eu simpatizo. Quer o senhor namorar uma das minhas cunhadas, se não está disposto a continuar o namoro com minha mulher? Olhe que ambas têm nomes inspiradores: uma é Berta, a outra é Laura. Escolha, que eu coadjuvo-o.
-     Creiam que estava corrido, e dei graças a Deus quando se aproximaram da nossa mesa três sujeitos conhecidos do empregado. Assim foi interrompida a conversação, em que a minha pobre vaidade estava sofrendo como em potro de escárnio. Ergui-me, despedi-me, apertei a mão ao marido de Clotilde, e fui rasgar as prosas e versos que escrevera numa  brochura ad ho cenfeixado tudo sob o seguinte título: A Ti!... E mais nada, a tal respeito.
+Ninguém me há de acreditar a história da quarta mulher. Quer creiam, quer não, ela ai vai com pouca arte, a ver se a sua mesma desnudez a faz menos incrível.
+Fui um dia de agosto a Porto Brandão, onde estava a banhos um meu amigo. Numa quinta para lá da encosta houve uma reunião de famílias de Lisboa, à qual fui convidado. O meu amigo apresentou-me a um cavalheiro, que me tomou o braço e me apresentou a algumas senhoras, todas galantes, palreiras e doutoras em Paulo de Kock.
+Pedi miúdos esclarecimentos acerca de todas, e particularmente da mais bonita e modesta. O cavalheiro de todas disse mal, mal, porém, que eu indultei cordialmente, defeitos que são enfeites, vícios que alindam as formosas e denigrem as feias. O crime de todas era a casquilhice, que o leitor pode, se quiser, traduzir para coquetterie. Amavam toda a gente, segundo o informador. Fiquei satisfeito, cuidando que o amarem elas toda a gente era boa probabilidade para eu ser amado. Eu não queria mais nada.
+Languiram em doce ternura meus olhos, fitos na mais amável das quatro. Algumas vezes nossas vistas se encontraram, e disseram profundos mistérios da alma. Fugi outras vezes da sala e fui a uma varanda, donde se ouvia o bramido do oceano, casar as melodias do meu amor com as dissonâncias formidolosas do estrugir das ondas. A lua prateava-me a testa, em que o sangue, aquecido no coração, subia em arquejos daquela poesia, que não sai em rimas, e enlouquece, se a paixão a não desafoga em suspiros. Aquilo é que era!
+Eu queria comunicar a exuberância da minha ventura, mas tive sempre para mim que a felicidade quer-se recatada para não suscitar invejas: é ela como a fina essência das flores destiladas, que perde o aroma, destapado o cristal que a encerra. Não contei nada ao meu amigo; simulei até desapego das mulheres mais belas do baile, e da preferida nem se quer falei.
+Ao romper de alva, vi que um rancho de meninas desciam ao jardim e colhiam flores. A minha amada ficou à janela conversando com senhoras idosas. “Tragam-me a mim uma rosa de musgo”, disse ela às amigas. E as amigas volveram sem a rosa. Desci ao jardim, colhi duas rosas aljofradas das lágrimas da aurora, pedi licença para lhes oferecer, e disse: “Não as enxuguei, para não privar as florinhas das carícias de um anjo.”
+Este meu dito foi celebrado em Porto Brandão.
+Daqui encetámos um colóquio, em que o meu acanhamento foi digno de lástima. Perguntei-lhe abruptamente onde morava; e ela, com a mais casta naturalidade, respondeu-me:
+- Moro na rua da Rosa das Partilhas, n.º 101, segundo andar.
+Naquele dia vim para Lisboa, visto que o meu amigo se retirava. Quinze dias seguidos fui à Rua da Rosa, e vi sempre fechadas as janelas do segundo andar.
+Defronte morava uma estanqueira. Afreguesei-me para lhe captar a benevolência: e, ao décimo sexto dia, perguntei-lhe quem morava naquela casa.
+- Ali mora um sujeito que é empregado no contrato do tabaco - disse ela.
+- E tem família?
+- Tem sim senhor. Vejo lá umas duas ou três meninas que me parecem irmãs dele, ou coisa parecida.
+- Uma de olhos pretos e cabelos cor de azeviche, será irmã?
+- a falar-lhe a verdade, senhor, a cor que ela tem nos olhos e no cabelo na sei. Ali há uma bonitota, que é mais triste que as outras e está sempre a ler, aos dias santos. As outras têm assim um ar de doidas, que faz rir a gente. Namoram de lenço branco e à meia-noite estão à janela a papaguear para a rua, que é mesmo um escândalo. Que eu, a falar a verdade, meto-me cá com a minha vida e não quero saber quem é, nem o que faz, a vizinhança.
+- Sabe dizer-me onde estão agora?
+- Estão fora da terra; mas onde, não sei. Ontem andavam lá a lavar a casa; é que não tardam aí.
+Nesse mesmo dia, à noite, encontrei no Marrare das Sete Portas o cavalheiro que me tinha apresentado à mulher querida, em Porto Brandão. Falámos muito da divertida noitada e nas mulheres que converteram em paraíso terreal a casinha campestre. Ébrio de amor, deixei-me ir ao sabor do coração indiscreto e falei na mulher, cuja imagem me não dera tréguas duma hora ao espírito cobiçoso dela. O sujeito destramente se insinuou na minha confiança e conseguiu que eu lhe dissesse a morada da dama a quem ele me apresentara.
+Riu-se o indivíduo, e sofreou logo a expansão.
+- De que ri Vossa Senhoria? - Perguntei com desgosto.
+Deteve-se o homem a cismar, e respondeu:
+- Rio da pouca ou nenhuma penetração da mocidade. Não se recorda de eu lhe ter dito que aquelas senhoras amavam toda a gente?
+- E se o senhor se apaixonar?
+- Apaixonado estou eu.
+- Pois pior. Suponha agora que aquela mulher o menospreza e ridiculiza!
+- Suicido-me!
+- Isso é asneira, Sr. Silvestre! Olhe eu já amei Clotilde.
+- Chama-se Clotilde?
+- Chama. Que nome!, que poesia!, que lirismo!, não acha?
+- Acho!... Clotilde! Há não sei quê das paixões sanguentas da Idade Média neste nome!... Clotilde! Que bem fadado nome! Tem magia!... Clotilde!... Então o senhor amou-a?
+- Amei.
+- E depois?
+- Apaixonei-me. Pedi-lhe o coração exclusivo, e ela disse-me que o exclusivo do coração só o daria com o exclusivo da mão. Entende o fraseado?
+- Perfeitíssimamente. Queria dizer que só amaria exclusivamente o marido.
+- É isso mesmo. Eu era menor, e meu pai negava-me licença para casar. Clotilde era pobre, e eu, sem os benefícios de meu pai, era indigente: Tão inútil homem era eu que fazia versos, e que versos, ó santo Deus!
+- E ela ama poesia?
+- Gostava das décimas e embirrava com as odes. Fiz-lhe muita décima: estão todas impressas no Ramalhete. Vamos ao essencial. A paixão cegou-me. Clotilde, sabedora da repugnância de meu pai, parecia disposta a aproveitar o tempo com outro namoro. Suspeitei esta infernal resolução, e... que passo eu dei, Sr. Silvestre!... que passo!...
+- Que passo deu o senhor?!
+- Casei com ela!
+- O quê?! - exclamei eu, varando de agulhadas nos olhos e nos ouvidos.
+- Casei com Clotilde.
+- Pois Clotilde é casada?...
+- Comigo; há cinco anos, quatro meses e nove dias!
+Dito isto, o empregado público, depois duma gargalhada estridente, afectou a mais cómica das seriedades e continuou:
+- O senhor não vá contar isso a ninguém, senão arrisca-se a dar mote para uma farsa, e lembre-se que o personagem mais ridículo dela será o Sr. Silvestre da Silva, com cuja candura eu simpatizo. Quer o senhor namorar uma das minhas cunhadas, se não está disposto a continuar o namoro com minha mulher? Olhe que ambas têm nomes inspiradores: uma é Berta, a outra é Laura. Escolha, que eu coadjuvo-o.
+Creiam que estava corrido, e dei graças a Deus quando se aproximaram da nossa mesa três sujeitos conhecidos do empregado. Assim foi interrompida a conversação, em que a minha pobre vaidade estava sofrendo como em potro de escárnio. Ergui-me, despedi-me, apertei a mão ao marido de Clotilde, e fui rasgar as prosas e versos que escrevera numa  brochura ad ho cenfeixado tudo sob o seguinte título: A Ti!... E mais nada, a tal respeito.
      
      
+IV
      
-     IV
-     
-     Ainda agora me não entendo bem, se penso na frieza do meu coração às escaramuças que a dona do hotel lhe fazia!
-     Era a Sra. D. Martinha uma viúva de trinta e cinco anos, pequena, entroncada; mas bem feita e ágil. De seu tinha pouco cabelo; porém, com o abençoado capital que empregara em marrafas tecia um trançado tão abundante, principalmente ao domingo, que nunca a arte dos Canovas fez cabeça mais magnífica em adornos que a da Sra. D. Martinha.
-     Eu bem a vi desfazer-se em atenções comigo, dando-me o melhor quarto, a melhor manteiga, e o café, depois do jantar, fora do ajuste; mas os olhos do meu coração andavam desvairados em contemplações de mais poéticas provas de amor, e não podiam baixar ao devido apreço da boa manteiga e do café de Cabo Verde, como amorosos mimos e demonstração de ternura.
-     Aos Domingos, a Sra. D. Martinha honrava os hóspedes ao jantar com a sua presença. Eram banquetes estes jantares, obrigados a vinho de Setúbal, presente semanal dum tio da senhora, sujeito de sessenta anos, que remoçava aos vinte, naqueles dias em que ele era certo à mesa.
-     A jovial dama erguia-se sempre escarlate até às orelhas e lançava-se a um tão voluptuariamente alquebrada, que seria muito para amar-se, se a hipótese consentisse que ela tivesse dentro do seio tanto coração como vinho de Setúbal. Vi-a dançar a jota com requebros de escandecente despejo; não era menos lúbrica no lundum chorado; e, não sei se de experiência, se de instinto, saracoteava-se tão peneirada nas evoluções do fado, que eu estava pasmado do que via.
-     Convidava eu amigos a jantarem comigo aos domingos, prevenindo-os para gozarem as delícias gratuitas daquela dama, transfigurada em bacante, posto que as antigas bacantes não o eram sem a condição da virgindade, e neste ponto, de modo algum quero ultrajá-la com a comparação. Os meus amigos, já apodrentados de coração, encaravam na desenvolta Martinha com olhos cobiçosos, e, a seu pesar, confessavam que o amado era eu, e unicamente eu. Maus conselheiros excitaram-me a cismar nos encantos, que eles viam, e - com pejo o digo - descobri que a mulher tinha reduzido a pântano uma parte do meu coração para retouçar-se nele.
-     Amei-a; e ela, sem lho eu dizer, conheceu-o logo. Expôs-me ardentemente as suas raivas e ciúmes, quando me via namorar as vizinhas; e confessou que tivera o satânico pensamento de envenenar Catarina, quando eu a amava, e era amado, tendo ela depositado no coração da desleal amiga o seu segredo.
-     Os dias corriam plácidos e felizes para nós, quando D. Martinha tomou uma criada, que era mulata.
-     Mas que anjo das estuosas zonas onde a pele está calcinada, como devem está-lo as fibras do coração! Que mulata!, que inferno de devorante lascívia ela tinha nos olhos! Que tentação, que doidice me tomou de assalto apenas a vi em roda do meu leito, fazendo a cama! O menor trejeito era uma provocação; o frémito das saias era um choque da pilha galvânica! Ó minha virtude pudibunda! Estavas estragada por D. Martinha!
-     Amei a mulata, com todo o ardor do meu sangue e dos meus vinte anos! Pedi-lhe amor, como se pede a um Serafim de neve e rosas, a quem a gente ajoelha e ora de longe, com medo de os desmanchar com o bafo. Quando a exorava, parece que os nervos me retorciam os músculos; e os músculos se contraíam em espasmos de luciferina delícia! Lembra-me que me ajoelhei a seus pés um dia, beijando-lhe as mãos, que perfumavam o aroma de cebola do refogado. Melhor me lembra ainda que me ergui de seus pés vitorioso, e feliz como nunca um réu perdoado se ergueu dos pés de rainha do Congo!
-     Perguntai às aves do céu, e às alimárias dos pedregais africanos, como se amam!
-     O meu amor tinha da ave a meiguice e do tigre a insaciável sofreguidão.
-     A mulata sabia que eu tinha amado a ama e era ainda perseguido por ela. Disse-lhe eu que a tolerava por compaixão do seu aferrado afecto. Riu-se a mulata e disse: “Uma vez hei de mostrar-lhe a Sra. D. Martinha no momento em que ela for mais digna da sua compaixão.”
-     Ainda lhes não tinha dito que a folha do Brasil era extremamente engraçada, esperta e maliciosa. Aquelas poucas palavras bastam a defini-la.
-     Chegou o dia em que ela me havia de mostrar D. Martinha no momento em que mais digna fosse da minha compaixão.
-     Desceu a mulata do terceiro ao segundo andar e disse-me: “Siga-me pé ante pé.” Segui-a, e entrei numa alcova, que tinha portas cortinadas para uma saleta. A condutora afastou um todo-nada da cortina e mandou-me espreitar através da vidraça.
-     Vi D. Martinha despeitorada e reclinada sobre a otomana. Com os joelhos no estrado estava ele a calçar-lhe as meias nas pernas abandonadas aos seus carinhos. Ele, depois, estendeu-lhe os braços seio acima, cingiu-a pelo pescoço e apoiou a face na porção mais flácida do peito. Ele, depois... “Ele, quem?”, pergunta quem isto ler.
-     Era o tio, que dava o vinho de Setúbal aos domingos. Quando saí do observatório, inclinei o ouvido à mulata, que me dizia:
-     - É, ou não é, mais digna da sua compaixão do que nunca foi?
-     - E de nojo! - acrescentei.
-     Dois dias depois, tive de retirar da hospedaria, em razão de ter dito à Sra. D. Martinha que ela não valia as garrafas de Setúbal que lhe dava o incestuoso sexagenário.
-     A mulata... (agora me lembro que se chamava Tupinyoyo - que nome tão amável!) ficou de me visitar todos os domingos; mas ao terceiro, depois da promessa, contou-me um aguadeiro de um ricaço, vindo do Brasil, se apaixonou por ela e a levara consigo para o Minho.
-     Não mentiu o galego. Três anos depois a vi eu na segunda ordem do Teatro de S. João do Porto, vestida ricamente, ao lado duma grande cabeça, que estava cotada na praça do Porto em dois milhões.
-     Viu-me, fitou-me; não sei se corou; o pudor naquela ordem de peles não sei a cor que toma. Para ouvir a opinião pública, perguntei a diferentes elegantes quem fosse a mulata, e todos. À uma, me responderam que era filha dum titular brasileiro e que fora educada em Londres.
-     Não desmenti a opinião pública. Seria uma ingratidão à mulher que me ergueu dos seus pés, quando eu lhe pedia o seu amor com lágrimas. Se eu fosse opulento como o homem vindo do Brasil, talvez que ao lado dela, no camarote de S. João, estivesse eu, e não ele.
+Ainda agora me não entendo bem, se penso na frieza do meu coração às escaramuças que a dona do hotel lhe fazia!
+Era a Sra. D. Martinha uma viúva de trinta e cinco anos, pequena, entroncada; mas bem feita e ágil. De seu tinha pouco cabelo; porém, com o abençoado capital que empregara em marrafas tecia um trançado tão abundante, principalmente ao domingo, que nunca a arte dos Canovas fez cabeça mais magnífica em adornos que a da Sra. D. Martinha.
+Eu bem a vi desfazer-se em atenções comigo, dando-me o melhor quarto, a melhor manteiga, e o café, depois do jantar, fora do ajuste; mas os olhos do meu coração andavam desvairados em contemplações de mais poéticas provas de amor, e não podiam baixar ao devido apreço da boa manteiga e do café de Cabo Verde, como amorosos mimos e demonstração de ternura.
+Aos Domingos, a Sra. D. Martinha honrava os hóspedes ao jantar com a sua presença. Eram banquetes estes jantares, obrigados a vinho de Setúbal, presente semanal dum tio da senhora, sujeito de sessenta anos, que remoçava aos vinte, naqueles dias em que ele era certo à mesa.
+A jovial dama erguia-se sempre escarlate até às orelhas e lançava-se a um tão voluptuariamente alquebrada, que seria muito para amar-se, se a hipótese consentisse que ela tivesse dentro do seio tanto coração como vinho de Setúbal. Vi-a dançar a jota com requebros de escandecente despejo; não era menos lúbrica no lundum chorado; e, não sei se de experiência, se de instinto, saracoteava-se tão peneirada nas evoluções do fado, que eu estava pasmado do que via.
+Convidava eu amigos a jantarem comigo aos domingos, prevenindo-os para gozarem as delícias gratuitas daquela dama, transfigurada em bacante, posto que as antigas bacantes não o eram sem a condição da virgindade, e neste ponto, de modo algum quero ultrajá-la com a comparação. Os meus amigos, já apodrentados de coração, encaravam na desenvolta Martinha com olhos cobiçosos, e, a seu pesar, confessavam que o amado era eu, e unicamente eu. Maus conselheiros excitaram-me a cismar nos encantos, que eles viam, e - com pejo o digo - descobri que a mulher tinha reduzido a pântano uma parte do meu coração para retouçar-se nele.
+Amei-a; e ela, sem lho eu dizer, conheceu-o logo. Expôs-me ardentemente as suas raivas e ciúmes, quando me via namorar as vizinhas; e confessou que tivera o satânico pensamento de envenenar Catarina, quando eu a amava, e era amado, tendo ela depositado no coração da desleal amiga o seu segredo.
+Os dias corriam plácidos e felizes para nós, quando D. Martinha tomou uma criada, que era mulata.
+Mas que anjo das estuosas zonas onde a pele está calcinada, como devem está-lo as fibras do coração! Que mulata!, que inferno de devorante lascívia ela tinha nos olhos! Que tentação, que doidice me tomou de assalto apenas a vi em roda do meu leito, fazendo a cama! O menor trejeito era uma provocação; o frémito das saias era um choque da pilha galvânica! Ó minha virtude pudibunda! Estavas estragada por D. Martinha!
+Amei a mulata, com todo o ardor do meu sangue e dos meus vinte anos! Pedi-lhe amor, como se pede a um Serafim de neve e rosas, a quem a gente ajoelha e ora de longe, com medo de os desmanchar com o bafo. Quando a exorava, parece que os nervos me retorciam os músculos; e os músculos se contraíam em espasmos de luciferina delícia! Lembra-me que me ajoelhei a seus pés um dia, beijando-lhe as mãos, que perfumavam o aroma de cebola do refogado. Melhor me lembra ainda que me ergui de seus pés vitorioso, e feliz como nunca um réu perdoado se ergueu dos pés de rainha do Congo!
+Perguntai às aves do céu, e às alimárias dos pedregais africanos, como se amam!
+O meu amor tinha da ave a meiguice e do tigre a insaciável sofreguidão.
+A mulata sabia que eu tinha amado a ama e era ainda perseguido por ela. Disse-lhe eu que a tolerava por compaixão do seu aferrado afecto. Riu-se a mulata e disse: “Uma vez hei de mostrar-lhe a Sra. D. Martinha no momento em que ela for mais digna da sua compaixão.”
+Ainda lhes não tinha dito que a folha do Brasil era extremamente engraçada, esperta e maliciosa. Aquelas poucas palavras bastam a defini-la.
+Chegou o dia em que ela me havia de mostrar D. Martinha no momento em que mais digna fosse da minha compaixão.
+Desceu a mulata do terceiro ao segundo andar e disse-me: “Siga-me pé ante pé.” Segui-a, e entrei numa alcova, que tinha portas cortinadas para uma saleta. A condutora afastou um todo-nada da cortina e mandou-me espreitar através da vidraça.
+Vi D. Martinha despeitorada e reclinada sobre a otomana. Com os joelhos no estrado estava ele a calçar-lhe as meias nas pernas abandonadas aos seus carinhos. Ele, depois, estendeu-lhe os braços seio acima, cingiu-a pelo pescoço e apoiou a face na porção mais flácida do peito. Ele, depois... “Ele, quem?”, pergunta quem isto ler.
+Era o tio, que dava o vinho de Setúbal aos domingos. Quando saí do observatório, inclinei o ouvido à mulata, que me dizia:
+- É, ou não é, mais digna da sua compaixão do que nunca foi?
+- E de nojo! - acrescentei.
+Dois dias depois, tive de retirar da hospedaria, em razão de ter dito à Sra. D. Martinha que ela não valia as garrafas de Setúbal que lhe dava o incestuoso sexagenário.
+A mulata... (agora me lembro que se chamava Tupinyoyo - que nome tão amável!) ficou de me visitar todos os domingos; mas ao terceiro, depois da promessa, contou-me um aguadeiro de um ricaço, vindo do Brasil, se apaixonou por ela e a levara consigo para o Minho.
+Não mentiu o galego. Três anos depois a vi eu na segunda ordem do Teatro de S. João do Porto, vestida ricamente, ao lado duma grande cabeça, que estava cotada na praça do Porto em dois milhões.
+Viu-me, fitou-me; não sei se corou; o pudor naquela ordem de peles não sei a cor que toma. Para ouvir a opinião pública, perguntei a diferentes elegantes quem fosse a mulata, e todos. À uma, me responderam que era filha dum titular brasileiro e que fora educada em Londres.
+Não desmenti a opinião pública. Seria uma ingratidão à mulher que me ergueu dos seus pés, quando eu lhe pedia o seu amor com lágrimas. Se eu fosse opulento como o homem vindo do Brasil, talvez que ao lado dela, no camarote de S. João, estivesse eu, e não ele.
      Falta-me falar da sétima mulher.
      
      
+V
      
-     V
+Eu tinha um amigo que se namorara duma modista francesa e me pedia que fosse intérprete do seu coração, na língua de Vítor Hugo. Não me pareceu custoso fingir a língua de Vítor Hugo, sendo a semelhança julgada pela modista. Parece-me que Vítor Hugo não entenderia as minhas cartas escritas no seu idioma; quero, porém, acreditar que a francesa não acharia mais poesia nem mais correcção raciniana no poeta das Orientais.
+As minhas cartas pertenciam ao sistema que os mestres em epistolografia amorosa determinaram para as modistas. Era o sistema da precipitação dos sucessos e da catástrofe. À oitava carta, convencionou-se o encontro do meu amigo com a francesa numa quinta em Carnide, indo ela acompanhada de uma sua amiga na carruagem, que devia esperá-las à porta oriental do Passeio Público.
+- Como há de ser isto?! - disse eu ao meu amigo -; como te hás de tu entender com ela?
+Cibrão ficou um pouco enleado e respondeu:
+- É verdade!... como hei de eu entendê-la!... Há quinze dias que comprei um dicionário português-francês e uma guia de conversação; mas pouco ou nada sei...
+- Como há de ser isto? Eu acho ridícula a tua posição se , às primeiras palavras da francesa, tens de lhe dizer, numa língua que ela não entende, que não percebes a língua que ela te fala. Vocês afinal acabam por se rirem francamente um do outro, e com o ridículo matam o amor.
+- Vais tu comigo? - acudiu Cibrão, de golpe.
+- Vou; mas, ainda assim, o que faço é aumentar com a minha ida os personagens da farsa. Como queres tu que a francesa me faça a língua do seu coração, se eu suponho que a sua vontade é dizer-te coisas que envergonham dois amantes na presença de terceira pessoa? E calculas tu quanto seria cómico estar eu entre ti e ela compondo para francês e traduzindo para português a linguagem intraduzível dos suspiros? Afinal rir-nos-íamos todos três. A minha opinião é que não vás. Inventa um pretexto, que dê em resultado uma outra entrevista, em que se dispense um longo prefácio de palestra e em que o silêncio seja necessário como recato e cautela. Não vás a sítios em que a natureza campestre te obrigue a discorrer acerca de flores e delícias das tardes estivas. Procura um encontro nas trevas, de modo que a tua inteligência de línguas fique também em trevas, dando-lhe tu em compensação as mais significativas provas de tua sensibilidade, sem alardo de espírito. Às frases responde suspirando. O je vous aime virá sempre a propósito. Aprende a conjugar bem o verbo aimer.
+- Esse já eu sei.
+- Já? Eu amo?
+- J’aime.
+- Eu amarei.
+- J’aimerai.
+- Bem. Je t’aimerai pour la vie, par toujours, éternellement. Entendes?
+- Perfeitamente.
+- O mais que pudesses dizer seria um pleonasmo. Cifra-te nisto. Adão amou Eva, sabendo dizer muito menos, se me não engana o juízo que eu formo da organização das línguas. Os irracionais também se amam sem diálogo, se não devemos chamar diálogo ao gorjeio dos passarinhos e aos bramidos da leoa sedenta de amor, quando o querido lhe ruge da vizinha selva. Imitemos os bichos para sermos naturais alguma vez.
+- Mas afinal - interrompeu Cibrão - que dizes tu?
+Aconselhas-me que não vá a Carnide?
+- Parecia-me imprudente...
+- A boa hora me vens pregar prudências! Hei de ir, e tu vais comigo. Prometo dispensar os teus conhecimentos para me fazer entender. Conjugarei o verbo desde o tempo presente do modo indicativo até ao imperativo. Eu darei o braço à francesa e tu ficarás com a outra. A quinta está ajardinada com sombrinhas grutas de murtas; nestas grutas mora o amor; o amor nos ensinará a falar.
+- Sendo assim... vamos.
+E fomos.
+A sege das meninas chegou pouco depois da nossa. Saltaram com buliçosa graça; e, sem biocos de cerim6onia ou pudor (pudor!... é o que faltava!), nos tomaram os braços.
+“Je vous aime”, disse Cibrão à risonha criatura, osculando-a base do nariz. “Je vous aimerai ‘ternellement”, prosseguiu ele, levando-a consigo a doces repelões, com a impetuosa ternura que eu imagino em Júpiter, feito boi, para arrebatar a Europa.
+E eu, para também me parecer com Júpiter, fiquei dizendo suavíssimas endeixas em prosa mélica, como aquele famoso cisne as cantava a Leda.
+O meu amigo, com a sua flexível haste de tarlatanas e grinaldas artificiais no chapéu, desapareceu nos caramanchéis das murtas, onde o amor os esperava para lhes ensinar a vernácula linguagem.
+A francesa, que me escutava as maravilhas amorosas em vasconço, era uma esbelta moça que devia ter sido muito festejada no seu Paris, antes dos trinta anos, e viera naturalmente reflorir a estranhos climas, em país de tolos, como este nosso, tolos esquisitos que, até no amor, adoram o galicismo, ainda mesmo que, na boa linguagem francesa, ele já tenha caído em desuso por antiquado e de mau quilate. Mademoiselle Florence Carlin era termo obsoleto lá na sua terra. Cá entre nós, andava encarecida nas palestras dos peraltas e requestada com finezas pelos mais gentis moços da roda (como quem diz enjeitados da fortuna), e com promessa de grosso cabedal por alguns velhos ricos, velhos digo ao dizer do vulgo, que em Lisboa só se sabe que Fulano ou sicrano era velho, quando morre, se a lista da mortalidade nos diz em que cemitério foi enterrado e os anos que tinha. Em Lisboa não há velho nenhum vivo. É frequente ouvir a gente esta pergunta feita a um moço de cinquenta anos: “Esteve em Sintra?” “Oh!”, responde, anediando a estriga do bigode encapada em lúcido verniz, “estive em Sintra, minha senhora.” “Estava muita gente no jantar da prima viscondessa?” “Sim, minha querida senhora marquesa; damas eram trinta; rapazes éramos vinte e sete.”
+Tornando à francesa, coisa a que não pode chamar-se vaca-fria:
+Dei-lhe uma ideia da minha alma. Contei-lhe os meus sofrimentos em demanda da mulher, que a fantasia em sonhos me vestia com as roupas cândidas do anjo. Disse-lhe mais que a sua imagem como resplendor de lua instantâneo, na horrível cerração de noite borrascosa, dans l’affreuse obscurité d’orageuse nuit, me tinha transluzido nas trevas do meu viver.
+A francesa ouviu-me pasmada, e assim a modo de medrosa, como pomba, que se teme da garrulice dum papagaio. A cada movimento melodramático de minhas mãos davam-lhe rebate os nervos, com menos alvoroço de pudor que o de Virgínia nos assaltos lúbricos do decênviro Appius Claudius, de desonesta memória.
+Convencida da inocência da minha mímica cobrou ânimo a dama e contou-me que era menina de boa família de Paris, e como tal se julgara digna consorte de um duque fementido, que a raptara e abandonara. À terceira tentativa inútil contra sua vida, resolveu a vítima do duque fugir de Paris para que a sua sociedade a não visse na perdição. Acaso soubera ela que uma notável modista francesa, estabelecida em Lisboa, mandara escriturar em Paris algumas oficias. Mademoiselle Elise de La Sallete mudou o nome, escriturou-se, e veio expiar a sua culpa na hora do trabalho. Eis aqui a história, que eu ouvi com os olhos marejados de lágrimas.
+Depois desta revelação, a minha linguagem baixou a prosa vil; mas o sentir da alma era mais íntimo e nobre. Tratei-a com o respeito que impõe a desgraça, mormente se a vítima caiu do altar das adorações à ara negra do holocausto de sua santa e virginal confiança. Ao entardecer, quando Cibrão voltava dos maciços de arbustos, pedi licença à nobre infeliz para lhe apertar a mão e dar-lhe o nome venerável e venerador de amigo.
+Despedimo-nos.
+Cibrão convenceu-me de que o amor estava nas murtas e saíra, ao vê-los, segregando a cada um a linguagem com que cabalmente, e quantum satis, se perceberam. Eu vinha pasmado do que ele me contou; e, se o não transmito, é que não quero ter os leitores em pasmo. Ora ele também vinha pasmado de mim. Eu a dizer-lhe, em pungimentos de ânimo, a sorte infausta de Mademoiselle Elisa de la Sallete, e ele a rir, e clamar: “Que araras tu engoles! Leve o diabo a poesia, que faz um homem tolo!”
+Entendi que o meu amigo era um estúpido feliz, e calei-me.
+Escrevi muito nessa noite. Ainda tenho os dois primeiros capítulos dum romance, então começado, com o título: Abismos do Amor. No primeiro descrevo Elisa ab ovo, quero dizer, na incubação dos anjos, que a tinham gerado. Isto orçava por parvoíce; mas era original - merecimento raro nas parvoíces que por aí se escrevem e dizem. No segundo capítulo deito-a em berço de ouro, rodeio-a de boas e más fadas, de anjos fiéis ao Senhor e de anjos despenhados no Inferno. Tencionava, no terceiro, dar o horóscopo da mafaldada, em resultado da vitória alcançada por Lúcifer sobre o anjo-custódio. Era uma coisa de muito trabalho e engenho.
+Fora meu intento publicar o romance por assinaturas, em cadernetas de 15 réis, e dedicá-lo deste feitio:
      
-     Eu tinha um amigo que se namorara duma modista francesa e me pedia que fosse intérprete do seu coração, na língua de Vítor Hugo. Não me pareceu custoso fingir a língua de Vítor Hugo, sendo a semelhança julgada pela modista. Parece-me que Vítor Hugo não entenderia as minhas cartas escritas no seu idioma; quero, porém, acreditar que a francesa não acharia mais poesia nem mais correcção raciniana no poeta das Orientais.
-     As minhas cartas pertenciam ao sistema que os mestres em epistolografia amorosa determinaram para as modistas. Era o sistema da precipitação dos sucessos e da catástrofe. À oitava carta, convencionou-se o encontro do meu amigo com a francesa numa quinta em Carnide, indo ela acompanhada de uma sua amiga na carruagem, que devia esperá-las à porta oriental do Passeio Público.
-     - Como há de ser isto?! - disse eu ao meu amigo -; como te hás de tu entender com ela?
-     Cibrão ficou um pouco enleado e respondeu:
-     - É verdade!... como hei de eu entendê-la!... Há quinze dias que comprei um dicionário português-francês e uma guia de conversação; mas pouco ou nada sei...
-     - Como há de ser isto? Eu acho ridícula a tua posição se , às primeiras palavras da francesa, tens de lhe dizer, numa língua que ela não entende, que não percebes a língua que ela te fala. Vocês afinal acabam por se rirem francamente um do outro, e com o ridículo matam o amor.
-     - Vais tu comigo? - acudiu Cibrão, de golpe.
-     - Vou; mas, ainda assim, o que faço é aumentar com a minha ida os personagens da farsa. Como queres tu que a francesa me faça a língua do seu coração, se eu suponho que a sua vontade é dizer-te coisas que envergonham dois amantes na presença de terceira pessoa? E calculas tu quanto seria cómico estar eu entre ti e ela compondo para francês e traduzindo para português a linguagem intraduzível dos suspiros? Afinal rir-nos-íamos todos três. A minha opinião é que não vás. Inventa um pretexto, que dê em resultado uma outra entrevista, em que se dispense um longo prefácio de palestra e em que o silêncio seja necessário como recato e cautela. Não vás a sítios em que a natureza campestre te obrigue a discorrer acerca de flores e delícias das tardes estivas. Procura um encontro nas trevas, de modo que a tua inteligência de línguas fique também em trevas, dando-lhe tu em compensação as mais significativas provas de tua sensibilidade, sem alardo de espírito. Às frases responde suspirando. O je vous aime virá sempre a propósito. Aprende a conjugar bem o verbo aimer.
-     - Esse já eu sei.
-     - Já? Eu amo?
-     - J’aime.
-     - Eu amarei.
-     - J’aimerai.
-     - Bem. Je t’aimerai pour la vie, par toujours, éternellement. Entendes?
-     - Perfeitamente.
-     - O mais que pudesses dizer seria um pleonasmo. Cifra-te nisto. Adão amou Eva, sabendo dizer muito menos, se me não engana o juízo que eu formo da organização das línguas. Os irracionais também se amam sem diálogo, se não devemos chamar diálogo ao gorjeio dos passarinhos e aos bramidos da leoa sedenta de amor, quando o querido lhe ruge da vizinha selva. Imitemos os bichos para sermos naturais alguma vez.
-     - Mas afinal - interrompeu Cibrão - que dizes tu?
-     Aconselhas-me que não vá a Carnide?
-     - Parecia-me imprudente...
-     - A boa hora me vens pregar prudências! Hei de ir, e tu vais comigo. Prometo dispensar os teus conhecimentos para me fazer entender. Conjugarei o verbo desde o tempo presente do modo indicativo até ao imperativo. Eu darei o braço à francesa e tu ficarás com a outra. A quinta está ajardinada com sombrinhas grutas de murtas; nestas grutas mora o amor; o amor nos ensinará a falar.
-     - Sendo assim... vamos.
-     E fomos.
-     A sege das meninas chegou pouco depois da nossa. Saltaram com buliçosa graça; e, sem biocos de cerim6onia ou pudor (pudor!... é o que faltava!), nos tomaram os braços.
-     “Je vous aime”, disse Cibrão à risonha criatura, osculando-a base do nariz. “Je vous aimerai ‘ternellement”, prosseguiu ele, levando-a consigo a doces repelões, com a impetuosa ternura que eu imagino em Júpiter, feito boi, para arrebatar a Europa.
-     E eu, para também me parecer com Júpiter, fiquei dizendo suavíssimas endeixas em prosa mélica, como aquele famoso cisne as cantava a Leda.
-     O meu amigo, com a sua flexível haste de tarlatanas e grinaldas artificiais no chapéu, desapareceu nos caramanchéis das murtas, onde o amor os esperava para lhes ensinar a vernácula linguagem.
-     A francesa, que me escutava as maravilhas amorosas em vasconço, era uma esbelta moça que devia ter sido muito festejada no seu Paris, antes dos trinta anos, e viera naturalmente reflorir a estranhos climas, em país de tolos, como este nosso, tolos esquisitos que, até no amor, adoram o galicismo, ainda mesmo que, na boa linguagem francesa, ele já tenha caído em desuso por antiquado e de mau quilate. Mademoiselle Florence Carlin era termo obsoleto lá na sua terra. Cá entre nós, andava encarecida nas palestras dos peraltas e requestada com finezas pelos mais gentis moços da roda (como quem diz enjeitados da fortuna), e com promessa de grosso cabedal por alguns velhos ricos, velhos digo ao dizer do vulgo, que em Lisboa só se sabe que Fulano ou sicrano era velho, quando morre, se a lista da mortalidade nos diz em que cemitério foi enterrado e os anos que tinha. Em Lisboa não há velho nenhum vivo. É frequente ouvir a gente esta pergunta feita a um moço de cinquenta anos: “Esteve em Sintra?” “Oh!”, responde, anediando a estriga do bigode encapada em lúcido verniz, “estive em Sintra, minha senhora.” “Estava muita gente no jantar da prima viscondessa?” “Sim, minha querida senhora marquesa; damas eram trinta; rapazes éramos vinte e sete.”
-     Tornando à francesa, coisa a que não pode chamar-se vaca-fria:
-     Dei-lhe uma ideia da minha alma. Contei-lhe os meus sofrimentos em demanda da mulher, que a fantasia em sonhos me vestia com as roupas cândidas do anjo. Disse-lhe mais que a sua imagem como resplendor de lua instantâneo, na horrível cerração de noite borrascosa, dans l’affreuse obscurité d’orageuse nuit, me tinha transluzido nas trevas do meu viver.
-     A francesa ouviu-me pasmada, e assim a modo de medrosa, como pomba, que se teme da garrulice dum papagaio. A cada movimento melodramático de minhas mãos davam-lhe rebate os nervos, com menos alvoroço de pudor que o de Virgínia nos assaltos lúbricos do decênviro Appius Claudius, de desonesta memória.
-     Convencida da inocência da minha mímica cobrou ânimo a dama e contou-me que era menina de boa família de Paris, e como tal se julgara digna consorte de um duque fementido, que a raptara e abandonara. À terceira tentativa inútil contra sua vida, resolveu a vítima do duque fugir de Paris para que a sua sociedade a não visse na perdição. Acaso soubera ela que uma notável modista francesa, estabelecida em Lisboa, mandara escriturar em Paris algumas oficias. Mademoiselle Elise de La Sallete mudou o nome, escriturou-se, e veio expiar a sua culpa na hora do trabalho. Eis aqui a história, que eu ouvi com os olhos marejados de lágrimas.
-     Depois desta revelação, a minha linguagem baixou a prosa vil; mas o sentir da alma era mais íntimo e nobre. Tratei-a com o respeito que impõe a desgraça, mormente se a vítima caiu do altar das adorações à ara negra do holocausto de sua santa e virginal confiança. Ao entardecer, quando Cibrão voltava dos maciços de arbustos, pedi licença à nobre infeliz para lhe apertar a mão e dar-lhe o nome venerável e venerador de amigo.
-     Despedimo-nos.
-     Cibrão convenceu-me de que o amor estava nas murtas e saíra, ao vê-los, segregando a cada um a linguagem com que cabalmente, e quantum satis, se perceberam. Eu vinha pasmado do que ele me contou; e, se o não transmito, é que não quero ter os leitores em pasmo. Ora ele também vinha pasmado de mim. Eu a dizer-lhe, em pungimentos de ânimo, a sorte infausta de Mademoiselle Elisa de la Sallete, e ele a rir, e clamar: “Que araras tu engoles! Leve o diabo a poesia, que faz um homem tolo!”
-     Entendi que o meu amigo era um estúpido feliz, e calei-me.
-     Escrevi muito nessa noite. Ainda tenho os dois primeiros capítulos dum romance, então começado, com o título: Abismos do Amor. No primeiro descrevo Elisa ab ovo, quero dizer, na incubação dos anjos, que a tinham gerado. Isto orçava por parvoíce; mas era original - merecimento raro nas parvoíces que por aí se escrevem e dizem. No segundo capítulo deito-a em berço de ouro, rodeio-a de boas e más fadas, de anjos fiéis ao Senhor e de anjos despenhados no Inferno. Tencionava, no terceiro, dar o horóscopo da mafaldada, em resultado da vitória alcançada por Lúcifer sobre o anjo-custódio. Era uma coisa de muito trabalho e engenho.
-     Fora meu intento publicar o romance por assinaturas, em cadernetas de 15 réis, e dedicá-lo deste feitio:
+Ao Anjo
+Que conserva sua pureza na desgraça
+E que, antes de ser mártir
+Se chamou
+Mademoiselle Elise de la Sallete,
+E hoje
+Se chama apenas
+A Santa,
+Consagra o Autor
+Esta urna de suas lágrimas
      
-     Ao Anjo
-     Que conserva sua pureza na desgraça
-     E que, antes de ser mártir
-     Se chamou
-     Mademoiselle Elise de la Sallete,
-     E hoje
-     Se chama apenas
-     A Santa,
-     Consagra o Autor
-     Esta urna de suas lágrimas
-     
-     Naqueles primeiros dias vi de relance a mártir, à hora da tarde em que despregava da costura.
-     Concentrava-me e dizia-lhe no verbo dum suspiro: “Ó santa do amor!, mal dirão as mulheres que hoje pompeiam nos salões com os vestidos que lhes fizeste quantas lágrimas verteste no estofo, que te estava insultando e escarnecendo no infortúnio!”
-     Uma tarde de julho estava eu no Passeio Público, quando as duas francesas entraram. De longe e reverenciosamente as cortejei. Elisa respondeu-me com um gesto de imensa melancolia, como quem diz: “Oh!, não reveles a esses homens de pedra a desgraçada que aqui vai!”
-     Atrás de mim estava um grupo de homens, que falaram e riam, quando as modistas passaram. Apurei o ouvido e escutei, com preferência, a voz dum sujeito, entre os dizeres zombeteiros dos outros. Dizia assim:
-     “[...] Parece incrível! Quando eu a conheci, há quatro anos, estava ela com um estudante brasileiro, que estudava o Curso Superior de Letras. Encontrei-a nas guinguettes, a dançar o cancã com admirável mestria. Depois, o brasileiro endossou-a a um italiano; o italiano deu-a de mão beijada a um tenor; o tenor passou-a ao corifeu dos coristas; e daí começou a descer, e perdi-a de vista. Eis senão quando, dou com ela no armazém da *** com a mais pudica das caras e a mais mesurada das linguagens. Recordei-lhe em termos hábeis o passado, as guinguettes, o cancã, o brasileiro e a caterva magna das dinastias que lhe avassalaram o coração; e ela, com as mais marmóreas das caras, disse-me que eu, se não estava enganado, era um infame. Mas o melhor de tudo é ela ter-se encampado a um provinciano, que por aí anda, conhecido do Cibrão Taveira, a título de menina seduzida por um duque, e diz chamar-se, em Paris, Elise de la Sallete!”
-     Riram todos, e eu pus a mão no lado esquerdo, a rebater o coração que partia as costelas e rasgava as membranas. Fitei o homem, que falava ainda, e disse mentalmente: “Se mentes, pagarás a infâmia com a vida!”
-     Procurei o meu amigo Cibrão Taveira e contei-lhe o que ouvira. Cibrão, sem escarnecer a minha dor, respondeu com ar sisudo:
-     - É verdade o que esse homem disse. Não quis desmentir as tuas presunções, porque sabia que te fazia mal. Eu sei-o da outra, que ela tem na conta de amiga íntima. Ambas são da mesma farinha. Nenhuma delas serve para poetas, que andam no encalço dos anjos. Se te serve assim, dá louvores ao Céu por ela ser quem é. Se queres mulheres para romances e prosas, pede-as à tua imaginação e deixa o mundo real como ele está, que não pode ser melhor.
-     Nesse mesmo dia fui para Mafra com tenção de morrer de tédio: o sítio era azado; mas a minha robusta organização resistiu.
-     Quando voltei a Lisboa, em começo de setembro, tinha chegado a companhia lírica. Um dos figurantes escriturados era o tenor que em Paris sucedera ao pintor seu patrício. A francesa viu-o, reconheceram-se, amaram-se outra vez, e estavam de casa e pucarinho numa sobreloja na Rua do Outeiro.
-     Encontrei-me uma vez com eles em casa do Mata, no Cais do Sodré. Aproximei-me dela, que comia um pastel de camarões, e disse-lhe:
-     - Posso ter a honra de ser apresentado ao Sr. Duque?
-     Fitaram-me ambos, e a francesa parecia corrida.
-     Acrescentei:
-     - Vejo que o sedutor por fim cumpriu os deveres de cavalheiro, Sra. Duquesa! Bem sabe quanto me deve ser grata a sua ventura. Agora, em paga do que as suas desgraças me penalisaram, queira a Sra. Duquesa dar-me o prazer de a ver dançar o cancã.
-     O Italiano ergueu-se de salto e arremesso; eu saí da sala devagarzinho; e ele, enquanto a mim, tornou a sentar-se. Fez bem, que eu não era para graças.
-     Acabou assim a história das sete mulheres, número cabalístico, de cuja misteriosa influência me ficou a alma um pouco derrancada.
+Naqueles primeiros dias vi de relance a mártir, à hora da tarde em que despregava da costura.
+Concentrava-me e dizia-lhe no verbo dum suspiro: “Ó santa do amor!, mal dirão as mulheres que hoje pompeiam nos salões com os vestidos que lhes fizeste quantas lágrimas verteste no estofo, que te estava insultando e escarnecendo no infortúnio!”
+Uma tarde de julho estava eu no Passeio Público, quando as duas francesas entraram. De longe e reverenciosamente as cortejei. Elisa respondeu-me com um gesto de imensa melancolia, como quem diz: “Oh!, não reveles a esses homens de pedra a desgraçada que aqui vai!”
+Atrás de mim estava um grupo de homens, que falaram e riam, quando as modistas passaram. Apurei o ouvido e escutei, com preferência, a voz dum sujeito, entre os dizeres zombeteiros dos outros. Dizia assim:
+“[...] Parece incrível! Quando eu a conheci, há quatro anos, estava ela com um estudante brasileiro, que estudava o Curso Superior de Letras. Encontrei-a nas guinguettes, a dançar o cancã com admirável mestria. Depois, o brasileiro endossou-a a um italiano; o italiano deu-a de mão beijada a um tenor; o tenor passou-a ao corifeu dos coristas; e daí começou a descer, e perdi-a de vista. Eis senão quando, dou com ela no armazém da *** com a mais pudica das caras e a mais mesurada das linguagens. Recordei-lhe em termos hábeis o passado, as guinguettes, o cancã, o brasileiro e a caterva magna das dinastias que lhe avassalaram o coração; e ela, com as mais marmóreas das caras, disse-me que eu, se não estava enganado, era um infame. Mas o melhor de tudo é ela ter-se encampado a um provinciano, que por aí anda, conhecido do Cibrão Taveira, a título de menina seduzida por um duque, e diz chamar-se, em Paris, Elise de la Sallete!”
+Riram todos, e eu pus a mão no lado esquerdo, a rebater o coração que partia as costelas e rasgava as membranas. Fitei o homem, que falava ainda, e disse mentalmente: “Se mentes, pagarás a infâmia com a vida!”
+Procurei o meu amigo Cibrão Taveira e contei-lhe o que ouvira. Cibrão, sem escarnecer a minha dor, respondeu com ar sisudo:
+- É verdade o que esse homem disse. Não quis desmentir as tuas presunções, porque sabia que te fazia mal. Eu sei-o da outra, que ela tem na conta de amiga íntima. Ambas são da mesma farinha. Nenhuma delas serve para poetas, que andam no encalço dos anjos. Se te serve assim, dá louvores ao Céu por ela ser quem é. Se queres mulheres para romances e prosas, pede-as à tua imaginação e deixa o mundo real como ele está, que não pode ser melhor.
+Nesse mesmo dia fui para Mafra com tenção de morrer de tédio: o sítio era azado; mas a minha robusta organização resistiu.
+Quando voltei a Lisboa, em começo de setembro, tinha chegado a companhia lírica. Um dos figurantes escriturados era o tenor que em Paris sucedera ao pintor seu patrício. A francesa viu-o, reconheceram-se, amaram-se outra vez, e estavam de casa e pucarinho numa sobreloja na Rua do Outeiro.
+Encontrei-me uma vez com eles em casa do Mata, no Cais do Sodré. Aproximei-me dela, que comia um pastel de camarões, e disse-lhe:
+- Posso ter a honra de ser apresentado ao Sr. Duque?
+Fitaram-me ambos, e a francesa parecia corrida.
+Acrescentei:
+- Vejo que o sedutor por fim cumpriu os deveres de cavalheiro, Sra. Duquesa! Bem sabe quanto me deve ser grata a sua ventura. Agora, em paga do que as suas desgraças me penalisaram, queira a Sra. Duquesa dar-me o prazer de a ver dançar o cancã.
+O Italiano ergueu-se de salto e arremesso; eu saí da sala devagarzinho; e ele, enquanto a mim, tornou a sentar-se. Fez bem, que eu não era para graças.
+Acabou assim a história das sete mulheres, número cabalístico, de cuja misteriosa influência me ficou a alma um pouco derrancada.
      
 
      
      
+A MULHER QUE O MUNDO RESPEITA
      
-    A MULHER QUE O MUNDO RESPEITA
+I
      
-     I
-     
-     A minha alma olhou para o que foi e viu que os sete amores que a tinham derrancado passageiramente eram ridículos e indignos de serem dados como explicação de um cinismo sobremaneira satânico em que eu me andava ensaiando.
-     Antes, porém, que eu tornasse em mim, estive seis meses a dizer ao mundo, em prosas chamadas Meditações e em versos denominados gritos de alma, que estava céptico, e cínico, e que havia de engolfar no lodo em que me atascaram o coração as virgens louras com o seu amor ingénuo, e quantas virgens de diversas cores a minha libertinagem atraísse às aras de sedenta vingança. Aqui vão as cópias dos principais poemas que então fiz...
-     
-     
-     Nota
-     
-     Defendo a paciência do leitor dos duros golpes que lhes estão iminentes. Ainda assim, há de levar-me a bem que eu lhe dê, à prova, uns relanços das poesias cépticas do meu amigo Silvestre. Entro pela mais filosófica:
-     
-     Ontem me riu o céu; milhões de estrelas
-     Me falaram d’amor.
-     Ontem flores a mil, e todas elas
-     Me davam, dos seus dons, das urnas belas,
-     Aroma à alma em flor!
-     Hoje, aí!, hoje um céu de negro, e a terra
-     De crepe funeral!
-     Hoje um peito que em si peçonha encerra;
-     E a alma em fogo, que precita erra
-     Num regiro infernal.
-     
-     As seguintes coisas são menos inocentes:
-     
-     Mulher!, em ânsias me esforço,
-     Punge-me dentro o remorso
-     De te não calcar aos pés!
-     Tinha uma crença...mataste-a!
-     Tinha uma luz...apagaste-a!...
-     Mulher!, que monstro tu és!
-     
-     Esta quadra da poesia LXIX é mais raivosa
-     
-     Hei de essa alma perversa estrinçar-te!
-     Hei de à fronte cuspir-te a peçonha
-     Que verteste em meu peito, e ferrete
-     Hei de pôr-to de eterna vergonha!
-     
-     Basta isto para terror das almas e amostra da poesia contemporânea de Silvestre.
-     Nestas minhas confissões hei de ser modesto, e verdadeiro, como Santo Agostinho e J. J. Rousseau; mas, ainda assim mais honesto que o santo e que o filósofo. O pejo e a natural vaidade querem pôr-me mordaça; mas eu hei de expiar as minhas parvoíces, confessando-as. Se, por miséria minha, me baralhei e confundi com tantos e tão graúdos tolos, farei agora minha distinção pondo, em letra redonda, que ora, Não me consta que algum dos meus amigos fizesse outro tanto.
-     Na minha qualidade de céptico, entendi que a desordem dos cabelos devia ser a imagem da minha da minha alma. Comecei, pois, por dar à cabeça um ar fatal, que chamasse a atenção e aguçasse a curiosidade dum mundo já gasto em admirar cabeças não vulgares. A anarquia dos meus cabelos custava-me dinheiro e muito trabalho. Ia, todos os dias, ao cabeleireiro calamistrar os longos anéis que me ondeavam nas espáduas; depois desfazia as espirais, riçava-as em caprichosas ondulações, dava à fronte o máximo espaço e sacudia a cabeça para desmanchar as torcidas deletriadas da madeixa. Como quer, porém, que a testa fosse menos escampada que o preciso para significar “desordem e génio”, comecei a barbear a testa, fazendo recuar o domínio do cabelo, a pouco e pouco, até que me criei uma fronte dilatada, e umas bossas frontais, como a natureza as não dera a Shakespeare nem a Goethe.
-     A minha cara ajeitava-se pouco à expressão dum vivo tormento de alma, em virtude de ser uma cara sadia, avermelhada e bem fornida de fibra musculosa. Era-me necessário remediar o infortúnio de ter saúde, sem atacar os órgãos essenciais da vida, mediante o uso de beberagens. Aconselharam-me os charutos do contrato; fumei alguns dias, sem mais resultado que uma ameaça de tubérculos, uma formal estupidez de espírito e não sei que profundo dissabor até da farsa em que eu a mim próprio mês estava dando em espectáculo. A cara mantinha-se na prosa ignóbil do escarlate, mais incendiada ainda pelos acessos de tosse, provocados pelo fumo. Um médico da minha íntima amizade receitou-me uma essência roxa com a qual eu devia pintar o que vulgarmente se diz “olheiras”. Ao deitar-me, corria levemente algumas pinceladas sobre a cútis, que desce da pálpebra inferior até às proeminências malares; ao erguer-me, tinha todo o cuidado em não lavar a porção arroxada pela tinta, e com uma maçaneta de algodão em rama desbastava a pintura nos pontos em que ela estivesse demasiadamente carregada. O artístico amor com que eu fazia isto deu em resultado uma tal perfeição no colorido que até o próprio médico chegou a persuadir-me, de longe, que o pisado dos meus olhos era natural, e eu mesmo também me parece que cheguei à persuasão do médico. Fiz, pois, de mim uma cara entre o sentimental de Antony e o trágico de Fausto. Seria, no entanto, mais completa a minha satisfação se à raiz do cabelo, no ponto em que eu barbeava a cabeça para aumentar a testa, me não aparecesse um diadema azulado. Era a natureza a vingar-se. Cada vez que me eu via com aquele disco na testa, experimentava a dor do poeta de Dom João contemplando o seu pé coxo, por causa do qual, e com o qual, tanto pontapé deu o raivoso lorde no género humano.
-     Assim amanhado de aspecto, saia de casa, à hora em que o Sol dardejava a prumo, ou quando as nuvens se rompiam em torrentes. O meu cavalo era negro, negro o meu trajar, tudo em mim e de mim reflectia a negridão da alma. Cheguei a enganar-me comigo mesmo, e a remirar-me a mim próprio, com certo compadecimento e simpatia! Os grupos dos meus conhecidos viam-me passar abstraído e diziam: “Foi uma mulher que o reduziu àquilo!” Eu sabia que era corrente nos círculos da juventude a seguinte história a meu respeito: “Que eu tinha amado uma neta de reis, filha dum titular, cujos avós já tinham os retratos de vinte gerações, antes de se inventar a pintura. Que a menina, fascinada pela minha mesma temeridade, descera, na hora da sesta, ao jardim, e me lançara uma flor, chamada ai!, na copa do chapéu. Que o jardineiro observava o ato e o delatara ao fidalgo. Que o fidalgo chamara a filha e, ouvida a resposta balbuciante dela, a fizera entrar no Mosteiro das Comendadeiras da Encarnação, onde se finava lentamente, e eu cá de fora lhe andava, a horas mortas, falando, mediante as estrelas do céu e os murmúrios misteriosos da noite, resolvido a morrer, logo que o anjo batesse as suas asas imortais no caminho da glória eterna. Amém.”
-     Era isso o que se dizia; mas a verdade é outra.
+A minha alma olhou para o que foi e viu que os sete amores que a tinham derrancado passageiramente eram ridículos e indignos de serem dados como explicação de um cinismo sobremaneira satânico em que eu me andava ensaiando.
+Antes, porém, que eu tornasse em mim, estive seis meses a dizer ao mundo, em prosas chamadas Meditações e em versos denominados gritos de alma, que estava céptico, e cínico, e que havia de engolfar no lodo em que me atascaram o coração as virgens louras com o seu amor ingénuo, e quantas virgens de diversas cores a minha libertinagem atraísse às aras de sedenta vingança. Aqui vão as cópias dos principais poemas que então fiz...
      
      
+Nota
      
-     II
+Defendo a paciência do leitor dos duros golpes que lhes estão iminentes. Ainda assim, há de levar-me a bem que eu lhe dê, à prova, uns relanços das poesias cépticas do meu amigo Silvestre. Entro pela mais filosófica:
      
-     É certo que eu, num dos meus passeios desabridos, quando o céu afuzilava relâmpagos, fui a caminho de Sintra, e vi na balaustrada de uma varanda, com os olhos postos no ocidente tempestuoso, uma mulher, que se me afigurou a pomba da boa nova ao quadragésimo dia do dilúvio. Retive as rédeas do cavalo, sofreei a respiração, contemplei-a com petulante ternura, e ela foi-se embora.
-     Tornei no dia seguinte a Benfica, e vi a menina sentada na varanda a ler, com um papagaio pousado na espádua esquerda.
-     O papagaio tomou medo aos galões do meu cavalo, saltou-lhe do ombro para o regaço, sacudindo-lhe da mão o livro, o qual caiu à estrada por entre os balaústres. Descavalguei dum salto apanhei o livro e esperei que um criado o viesse receber. Entretanto, abri-o, busquei o título na primeira página, e achei que era O Homem dos Três Calções. Inferi logo que a dama era uma altíssima cismadora de coisas etéreas.
-     Dei o livro ao criado de libré cor de canela, o qual, examinando o jarrete direito do meu cavalo, achou que ele tinha duas sobrecanas. Perguntei-lhe eu como se chamava a dona do livro, e ele respondeu que a fidalga se chamava Paula, que era morgada, que estava para se casar, e dos costumes não disse nada.
-     Cavalguei, retrocedi depois dum curto passeio, e, ao passar-lhe à porta, vi Paula dando ginjas ao papagaio. Viu-me, e fez-se da cor nacarina das ginjas.
-     Eu carecia duma paixão que me sacudisse pelos cabelos, uma paixão que me levasse de inferno em inferno, que me impinasse ao apogeu da glória, ou me despenhasse na voragem da morte. Precisava disto, porque não tinha que fazer, e gozava robusta saúde, e alargava a testa há cinco meses, não sei para que destinos!
-     Amar uma menina herdeira; contratada para casar; galante; lida nos bons catecismos espirituais; criada com passarinhos e flores; rodeada dos mágicos rumores das florestas: tudo isto me pareceu talhado à minha ansiedade de lutar, de sofrer, de viver com glória, ou morrer com honra. Quando cismava nisto, e me assaltava ao mesmo tempo a cobiça de entrar num restaurante à la carte, e pedir um pastel de pombos, corria-me de vergonha da minha viloa natureza!
-     Encontrei, uma vez, o criado de D. Paula a passear os cavalos no Campo Pequeno. Dialogámos acerca de raças cavalares, e dos lamparões dos mesmos, que ele sabia curar com proficiência. Encaminhei a conversação até falarmos da fidalga, e obtive os seguintes esclarecimentos: perguntou-lhe a menina se eu dissera alguma coisa, quando entreguei o livro, e mostrara-se admiradíssima de eu querer saber o nome dela. Desejara muito saber se eu lera o título do livro: informação que o criado não soubera dar. Perguntara-lhe se me via algumas vezes na estrada, e ficara muito pensativa quando soube que eu ali parava, olhando para as janelas, quando o criado, à meia-noite, se erguia para aquietar os cavalos.
-     Estas revelações animaram-me a pedir ao expansivo boleeiro que me aproximasse do coração de sua ama, por intermédio de uma carta respeitosa e digna dela. O criado, vencida a ficção dos escrúpulos, aceitou a carta, que eu escrevi numa mercearia do Campo Grande, a qual poderia entrar numa colecção de cartas para o uso dos anjos, se os amores lá de cima carecessem do favor do estilo e prosperassem na razão directa do arredondado do período.
-     Ao outro dia, fui a Benfica. Vi o papagaio, que saltou da gaiola ao peitoril da varanda, quando eu passava, e disse: “Tô carrocha” pareceu-me isto um ludibrio do pássaro, ensinado pela dona; mas a Providência é tão boa para os tolos que os compensa com o engenho de imputarem ao acaso as caçoadas que racionalmente e acintosamente os castigam.
-     Depois de muitas diligências malogradas, encontrei o criado, que me asseverou a entrega da carta e o rubor da menina quando a leu. Falei-lhe na resposta, e ele redarguiu que não ousava pedi-la por ser falta de respeito.
-     Nesta situação, tão dolorosa como ofensiva do meu orgulho, fui a um baile. Não foi de todo despressentida a minha entrada nas salas. A juventude de ambos os sexos encarou em mim com afectuosa benquerença. Os cabelos iam fatais e as olheiras fatalíssimas.
-     Às onze horas, quando eu, no salão de espera, me atirava a uma almofada, como corpo que não pode com a alma, tangeu duas vezes a sineta do pátio, e em seguida entrou Paula, pelo braço de um moço bem figurado, com outras senhoras e cavalheiros idosos no préstito.
-     Creio que me não viu, e, se me viu, fez o que fazem as mais inocentes e desartificiosas senhoras quando não querem ver.
-     Segui-a. Avizinhei-a nas salas. Ouvi o som de sua voz. Tive indirectamente notícias do papagaio, pedidas por uma outra menina. Convidei-a para uma quadrilha. Vi-lhe um gesto de assentamento, e senti-me brutificar, pensando no que havia de dizer-lhe.
-     Destes apertos têm saído grandes tolices e grandes conceitos. Quer me parecer que não fui infeliz falando-lhe deste teor:
-     - A providência dos infelizes encaminhou para aqui os meus passos. Eu não sabia que vinha aqui encontrar o anjo que fez da minha vida um suplício. Entrei nestas salas, como Dante, na região das lágrimas, como Trofônio no seu antro, donde não há mais sair com um sorriso nos lábios. V. Exa. Calca aos pés o mais devotado coração que ainda palpitou em peito de homem. Enganei-me, quando a vi, ao relumbrar dos relâmpagos, naquela tarde tempestuosa. Amei-a então, como o nauta suspiroso ama a cruz do adro da sua terra natal. Amei-a como o rouxinol a sombra dos sinceiros. Amei-a como o orvalho a flor e a aragem da tarde as asas iriadas da borboleta.
-     Paula fitou-me e coçou a testa com o leque.
-     Noutro intervalo da dança continuei:
-     - Por que não respondeu à minha carta?
-     - Era impossível. Eu já dei o meu coração. Por delicadeza lhe não devolvi a sua carta, e peço-lhe que me não escreva outra, que me compromete - respondeu ela.
-     Não me soou bem este galicismo dos lábios de Paula. Eu, em todas as situações da minha vida, quando vejo a língua dos Barros e dos Lucenas comprometida, dou razão ao filósofo francês que, à hora da morte, emendava um solicismo da criada, protestando defender até ao último respiro os foros da Língua. E com que admiração eu leio aquilo do gramático Dumarsais, que, em trances finais de vida, exclamava: “Hélas! Je mén vais... ou je mén vas... car je crois toujours que lún et l’autre se dit ou se disent!”
-     Tinha-se achegado de nós o sujeito que lhe dava o braço à entrada. No semblante de Paula conheci o receio de ter sido ouvida pelo cavalheiro, que a fitava com desconfiança.
+Ontem me riu o céu; milhões de estrelas
+Me falaram d’amor.
+Ontem flores a mil, e todas elas
+Me davam, dos seus dons, das urnas belas,
+Aroma à alma em flor!
+Hoje, aí!, hoje um céu de negro, e a terra
+De crepe funeral!
+Hoje um peito que em si peçonha encerra;
+E a alma em fogo, que precita erra
+Num regiro infernal.
+     
+As seguintes coisas são menos inocentes:
+     
+Mulher!, em ânsias me esforço,
+Punge-me dentro o remorso
+De te não calcar aos pés!
+Tinha uma crença...mataste-a!
+Tinha uma luz...apagaste-a!...
+Mulher!, que monstro tu és!
+     
+Esta quadra da poesia LXIX é mais raivosa
+     
+Hei de essa alma perversa estrinçar-te!
+Hei de à fronte cuspir-te a peçonha
+Que verteste em meu peito, e ferrete
+Hei de pôr-to de eterna vergonha!
+     
+Basta isto para terror das almas e amostra da poesia contemporânea de Silvestre.
+Nestas minhas confissões hei de ser modesto, e verdadeiro, como Santo Agostinho e J. J. Rousseau; mas, ainda assim mais honesto que o santo e que o filósofo. O pejo e a natural vaidade querem pôr-me mordaça; mas eu hei de expiar as minhas parvoíces, confessando-as. Se, por miséria minha, me baralhei e confundi com tantos e tão graúdos tolos, farei agora minha distinção pondo, em letra redonda, que ora, Não me consta que algum dos meus amigos fizesse outro tanto.
+Na minha qualidade de céptico, entendi que a desordem dos cabelos devia ser a imagem da minha da minha alma. Comecei, pois, por dar à cabeça um ar fatal, que chamasse a atenção e aguçasse a curiosidade dum mundo já gasto em admirar cabeças não vulgares. A anarquia dos meus cabelos custava-me dinheiro e muito trabalho. Ia, todos os dias, ao cabeleireiro calamistrar os longos anéis que me ondeavam nas espáduas; depois desfazia as espirais, riçava-as em caprichosas ondulações, dava à fronte o máximo espaço e sacudia a cabeça para desmanchar as torcidas deletriadas da madeixa. Como quer, porém, que a testa fosse menos escampada que o preciso para significar “desordem e génio”, comecei a barbear a testa, fazendo recuar o domínio do cabelo, a pouco e pouco, até que me criei uma fronte dilatada, e umas bossas frontais, como a natureza as não dera a Shakespeare nem a Goethe.
+A minha cara ajeitava-se pouco à expressão dum vivo tormento de alma, em virtude de ser uma cara sadia, avermelhada e bem fornida de fibra musculosa. Era-me necessário remediar o infortúnio de ter saúde, sem atacar os órgãos essenciais da vida, mediante o uso de beberagens. Aconselharam-me os charutos do contrato; fumei alguns dias, sem mais resultado que uma ameaça de tubérculos, uma formal estupidez de espírito e não sei que profundo dissabor até da farsa em que eu a mim próprio mês estava dando em espectáculo. A cara mantinha-se na prosa ignóbil do escarlate, mais incendiada ainda pelos acessos de tosse, provocados pelo fumo. Um médico da minha íntima amizade receitou-me uma essência roxa com a qual eu devia pintar o que vulgarmente se diz “olheiras”. Ao deitar-me, corria levemente algumas pinceladas sobre a cútis, que desce da pálpebra inferior até às proeminências malares; ao erguer-me, tinha todo o cuidado em não lavar a porção arroxada pela tinta, e com uma maçaneta de algodão em rama desbastava a pintura nos pontos em que ela estivesse demasiadamente carregada. O artístico amor com que eu fazia isto deu em resultado uma tal perfeição no colorido que até o próprio médico chegou a persuadir-me, de longe, que o pisado dos meus olhos era natural, e eu mesmo também me parece que cheguei à persuasão do médico. Fiz, pois, de mim uma cara entre o sentimental de Antony e o trágico de Fausto. Seria, no entanto, mais completa a minha satisfação se à raiz do cabelo, no ponto em que eu barbeava a cabeça para aumentar a testa, me não aparecesse um diadema azulado. Era a natureza a vingar-se. Cada vez que me eu via com aquele disco na testa, experimentava a dor do poeta de Dom João contemplando o seu pé coxo, por causa do qual, e com o qual, tanto pontapé deu o raivoso lorde no género humano.
+Assim amanhado de aspecto, saia de casa, à hora em que o Sol dardejava a prumo, ou quando as nuvens se rompiam em torrentes. O meu cavalo era negro, negro o meu trajar, tudo em mim e de mim reflectia a negridão da alma. Cheguei a enganar-me comigo mesmo, e a remirar-me a mim próprio, com certo compadecimento e simpatia! Os grupos dos meus conhecidos viam-me passar abstraído e diziam: “Foi uma mulher que o reduziu àquilo!” Eu sabia que era corrente nos círculos da juventude a seguinte história a meu respeito: “Que eu tinha amado uma neta de reis, filha dum titular, cujos avós já tinham os retratos de vinte gerações, antes de se inventar a pintura. Que a menina, fascinada pela minha mesma temeridade, descera, na hora da sesta, ao jardim, e me lançara uma flor, chamada ai!, na copa do chapéu. Que o jardineiro observava o ato e o delatara ao fidalgo. Que o fidalgo chamara a filha e, ouvida a resposta balbuciante dela, a fizera entrar no Mosteiro das Comendadeiras da Encarnação, onde se finava lentamente, e eu cá de fora lhe andava, a horas mortas, falando, mediante as estrelas do céu e os murmúrios misteriosos da noite, resolvido a morrer, logo que o anjo batesse as suas asas imortais no caminho da glória eterna. Amém.”
+Era isso o que se dizia; mas a verdade é outra.
+     
+     
+II
+     
+É certo que eu, num dos meus passeios desabridos, quando o céu afuzilava relâmpagos, fui a caminho de Sintra, e vi na balaustrada de uma varanda, com os olhos postos no ocidente tempestuoso, uma mulher, que se me afigurou a pomba da boa nova ao quadragésimo dia do dilúvio. Retive as rédeas do cavalo, sofreei a respiração, contemplei-a com petulante ternura, e ela foi-se embora.
+Tornei no dia seguinte a Benfica, e vi a menina sentada na varanda a ler, com um papagaio pousado na espádua esquerda.
+O papagaio tomou medo aos galões do meu cavalo, saltou-lhe do ombro para o regaço, sacudindo-lhe da mão o livro, o qual caiu à estrada por entre os balaústres. Descavalguei dum salto apanhei o livro e esperei que um criado o viesse receber. Entretanto, abri-o, busquei o título na primeira página, e achei que era O Homem dos Três Calções. Inferi logo que a dama era uma altíssima cismadora de coisas etéreas.
+Dei o livro ao criado de libré cor de canela, o qual, examinando o jarrete direito do meu cavalo, achou que ele tinha duas sobrecanas. Perguntei-lhe eu como se chamava a dona do livro, e ele respondeu que a fidalga se chamava Paula, que era morgada, que estava para se casar, e dos costumes não disse nada.
+Cavalguei, retrocedi depois dum curto passeio, e, ao passar-lhe à porta, vi Paula dando ginjas ao papagaio. Viu-me, e fez-se da cor nacarina das ginjas.
+Eu carecia duma paixão que me sacudisse pelos cabelos, uma paixão que me levasse de inferno em inferno, que me impinasse ao apogeu da glória, ou me despenhasse na voragem da morte. Precisava disto, porque não tinha que fazer, e gozava robusta saúde, e alargava a testa há cinco meses, não sei para que destinos!
+Amar uma menina herdeira; contratada para casar; galante; lida nos bons catecismos espirituais; criada com passarinhos e flores; rodeada dos mágicos rumores das florestas: tudo isto me pareceu talhado à minha ansiedade de lutar, de sofrer, de viver com glória, ou morrer com honra. Quando cismava nisto, e me assaltava ao mesmo tempo a cobiça de entrar num restaurante à la carte, e pedir um pastel de pombos, corria-me de vergonha da minha viloa natureza!
+Encontrei, uma vez, o criado de D. Paula a passear os cavalos no Campo Pequeno. Dialogámos acerca de raças cavalares, e dos lamparões dos mesmos, que ele sabia curar com proficiência. Encaminhei a conversação até falarmos da fidalga, e obtive os seguintes esclarecimentos: perguntou-lhe a menina se eu dissera alguma coisa, quando entreguei o livro, e mostrara-se admiradíssima de eu querer saber o nome dela. Desejara muito saber se eu lera o título do livro: informação que o criado não soubera dar. Perguntara-lhe se me via algumas vezes na estrada, e ficara muito pensativa quando soube que eu ali parava, olhando para as janelas, quando o criado, à meia-noite, se erguia para aquietar os cavalos.
+Estas revelações animaram-me a pedir ao expansivo boleeiro que me aproximasse do coração de sua ama, por intermédio de uma carta respeitosa e digna dela. O criado, vencida a ficção dos escrúpulos, aceitou a carta, que eu escrevi numa mercearia do Campo Grande, a qual poderia entrar numa colecção de cartas para o uso dos anjos, se os amores lá de cima carecessem do favor do estilo e prosperassem na razão directa do arredondado do período.
+Ao outro dia, fui a Benfica. Vi o papagaio, que saltou da gaiola ao peitoril da varanda, quando eu passava, e disse: “Tô carrocha” pareceu-me isto um ludibrio do pássaro, ensinado pela dona; mas a Providência é tão boa para os tolos que os compensa com o engenho de imputarem ao acaso as caçoadas que racionalmente e acintosamente os castigam.
+Depois de muitas diligências malogradas, encontrei o criado, que me asseverou a entrega da carta e o rubor da menina quando a leu. Falei-lhe na resposta, e ele redarguiu que não ousava pedi-la por ser falta de respeito.
+Nesta situação, tão dolorosa como ofensiva do meu orgulho, fui a um baile. Não foi de todo despressentida a minha entrada nas salas. A juventude de ambos os sexos encarou em mim com afectuosa benquerença. Os cabelos iam fatais e as olheiras fatalíssimas.
+Às onze horas, quando eu, no salão de espera, me atirava a uma almofada, como corpo que não pode com a alma, tangeu duas vezes a sineta do pátio, e em seguida entrou Paula, pelo braço de um moço bem figurado, com outras senhoras e cavalheiros idosos no préstito.
+Creio que me não viu, e, se me viu, fez o que fazem as mais inocentes e desartificiosas senhoras quando não querem ver.
+Segui-a. Avizinhei-a nas salas. Ouvi o som de sua voz. Tive indirectamente notícias do papagaio, pedidas por uma outra menina. Convidei-a para uma quadrilha. Vi-lhe um gesto de assentamento, e senti-me brutificar, pensando no que havia de dizer-lhe.
+Destes apertos têm saído grandes tolices e grandes conceitos. Quer me parecer que não fui infeliz falando-lhe deste teor:
+- A providência dos infelizes encaminhou para aqui os meus passos. Eu não sabia que vinha aqui encontrar o anjo que fez da minha vida um suplício. Entrei nestas salas, como Dante, na região das lágrimas, como Trofônio no seu antro, donde não há mais sair com um sorriso nos lábios. V. Exa. Calca aos pés o mais devotado coração que ainda palpitou em peito de homem. Enganei-me, quando a vi, ao relumbrar dos relâmpagos, naquela tarde tempestuosa. Amei-a então, como o nauta suspiroso ama a cruz do adro da sua terra natal. Amei-a como o rouxinol a sombra dos sinceiros. Amei-a como o orvalho a flor e a aragem da tarde as asas iriadas da borboleta.
+Paula fitou-me e coçou a testa com o leque.
+Noutro intervalo da dança continuei:
+- Por que não respondeu à minha carta?
+- Era impossível. Eu já dei o meu coração. Por delicadeza lhe não devolvi a sua carta, e peço-lhe que me não escreva outra, que me compromete - respondeu ela.
+Não me soou bem este galicismo dos lábios de Paula. Eu, em todas as situações da minha vida, quando vejo a língua dos Barros e dos Lucenas comprometida, dou razão ao filósofo francês que, à hora da morte, emendava um solicismo da criada, protestando defender até ao último respiro os foros da Língua. E com que admiração eu leio aquilo do gramático Dumarsais, que, em trances finais de vida, exclamava: “Hélas! Je mén vais... ou je mén vas... car je crois toujours que lún et l’autre se dit ou se disent!”
+Tinha-se achegado de nós o sujeito que lhe dava o braço à entrada. No semblante de Paula conheci o receio de ter sido ouvida pelo cavalheiro, que a fitava com desconfiança.
      
      
      
