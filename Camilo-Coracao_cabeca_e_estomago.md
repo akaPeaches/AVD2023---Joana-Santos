@@ -1,120 +1,97 @@
-
-Camilo Castelo Branco
-
-Coração, cabeça e estômago
-    
-Publicações Europa-América
-
-http://groups.google.com/group/digitalsource
+---
+Title: Coração, cabeça e estômago
+Author: Camilo Castelo Branco
+Date: 1862
+Type: Romance
+---
+Advertência do Autor
+à 2ª. Edição
      
-
+Folheando novamente os manuscritos de Silvestre da Silva, encontrei algumas páginas que merecem ser intercaladas nesta 2ª. Edição de suas memórias.
+A simpatia que o meu defunto amigo granjeou postumamente na república das letras e das tetras impõe-me o dever de empurrar portas dentro da imortalidade tudo que lhe diz respeito.
+O meu amigo António Augusto Teixeira de Vasconcelos achou que Silvestre algumas vezes abusava do vocabulário dos eufemismos. Também me parece que sim. Mas já agora deixemos o defunto com a sua responsabilidade e tenhamos esperanças de que ele se salvará primeiro que o autor da Fany, livro querido das famílias!
+Aqui vem a ponto dizer como Lopo de Vega, na Arte Nueva de Hacer Comedias:
      
+“Sustento en fin lo que escribi y conozco
+Que aunque fuera mejor de otra manera,
+No tuvieran el gusto que han tenido
+Por que as veces lo que és contra el justo
+Por la misma razón deleita el gusto”.
      
-     Advertência do Autor
-     à 2ª. Edição
+O Autor
      
-     Folheando novamente os manuscritos de Silvestre da Silva, encontrei algumas páginas que merecem ser intercaladas nesta 2ª. Edição de suas memórias.
-     A simpatia que o meu defunto amigo granjeou postumamente na república das letras e das tetras impõe-me o dever de empurrar portas dentro da imortalidade tudo que lhe diz respeito.
-     O meu amigo António Augusto Teixeira de Vasconcelos achou que Silvestre algumas vezes abusava do vocabulário dos eufemismos. Também me parece que sim. Mas já agora deixemos o defunto com a sua responsabilidade e tenhamos esperanças de que ele se salvará primeiro que o autor da Fany, livro querido das famílias!
-     Aqui vem a ponto dizer como Lopo de Vega, na Arte Nueva de Hacer Comedias:
+PREÂMBULO
      
-      “Sustento en fin lo que escribi y conozco
-     Que aunque fuera mejor de otra manera,
-     No tuvieran el gusto que han tenido
-     Por que as veces lo que és contra el justo
-     Por la misma razón deleita el gusto”.
+- O meu amigo Faustino Xavier de Novais conheceu perfeitamente aquele nosso amigo Silvestre da Silva...
+- Ora, se conheci!... Como está ele?
+- Está bem: está enterrado há seis meses.
+- Morreu?!
+- Não morreu, meu caro Novais. Um filósofo não deve aceitar no seu vocabulário a palavra morte, senão convencionalmente. Não há morte. O que há é metamorfose, transformação, mudança de feito. Pergunta tu ao doutíssimo poeta José Feliciano de Castilho o destino que tem a matéria. Dir-te-á a teu respeito o que disse de Ovídio, sujeito que não era mais material que tu e que o nosso amigo Silvestre da Silva. “Ovídio cadáver”, pergunta o sábio, “onde é que pára?” Tudo isso corre fados misteriosos, como Adão, como Noé, como Rómulo, como nossos pais, como nós, como nossos filhos, rolando pelos oceanos, flutuando nos ares, manando nas fontes, correndo nos rios, agregado nas pedras, sumido nas minas, misturado nos solos, viçando nas ervas, rindo nas flores, recendendo nos frutos, cantando nos bosques, rugindo nas matas, rojando dos vulcões, etc.” Isto, a meu ver, é exacto e, sobretudo, consolador. O nosso amigo Silvestre da Silva, a esta hora, anda repartido em partículas. Aqui faz parte da garganta dum rouxinol; além, é pétala duma tulipa; acolá, está consubstanciado num olho de alface; pode ser até que eu o esteja bebendo neste copo de água que tenho à minha beira e que tu o encontres nos sertões da América, alguma vez, transfigurado em cobra cascavel, disposto a comer-te, meu Faustino.
+O que te eu assevero é que ele deixou de ser Silvestre da silva, há seis meses, posto que os parentes teimam em lhe ter uma lousa sobre o chão, onde o estiraram, com esta mentira: ‘Aqui jaz Silvestre da Silva.’
+Pois é verdade.
+O nosso amigo começou a queixar-se, há de haver um ano, de falta de apetite, e frialdade de estômago, efeito das indigestões. Foi de mal a pior. Desconfiou que passava a outra metamorfose, e deu ordem aos seus negócios da alma com a eternidade. Dos bens terrenos não fez deixação, porque lá estavam os credores, seus presuntivos herdeiros, ainda que alguns deles declinaram a herança a benefício de inventário, lamentando que em Portugal não fosse lei a prisão por dívidas: parece que os irritou a certeza de que o cadáver insolvente não podia ser preso. Em outro ponto te darei mais detida notícia desta catástrofe.
+Eu fui o herdeiro dos seus papéis. Alguns credores quiseram disputarmos, cuidando que eram papéis de crédito. Fiz-lhes entender que eram pedaços dum romance; e eles, renunciando a posse, disseram que tais pataratices deviam chamar-se papelada, e não papéis.
+Aceitei a distinção como necessária e retirei com a papelada, resolvido a dá-la à estampa, e com o produto dela ir resgatando a palavra do nosso defunto amigo, embolsando os credores os credores. Fiz um cálculo aproximado, que me anima a asseverar aos credores de Silvestre da Silva que hão de ser plenamente pagos, feita a 10.ª edição deste romance.
+Aqui tens tu uma acção que deve ser extremamente agradável às moléculas circunfusas do nosso amigo. Espero que Silvestre ainda venha a agradecer-me o culto que assim dou à memória dele, convertido em aroma de flor, em linha de cristalina fonte, ou em Ambrósia de vinho do Porto, metamorfose mais que muito honrosa, mas pouco admirativa nele, que foi deste mundo já saturado em bom vinho. É opinião minha que o nosso amigo, a esta hora, é uma folhuda parreira.
+Vamos à papelada, como dizem os outros.
+Tenho debaixo dos olhos, mal enxutos da saudade, três volumes escritos da mão de Silvestre.
+O primeiro, na lauda, que serve de capa, tem a seguinte inscrição em letras maiúsculas: Coração.
+O segundo, menos volumoso, diz: Cabeça.
+O título do terceiro, e maior volume, é: Estômago.
+Nenhum deles designa época; mas quem tiver, como eu, particular conhecimento do indivíduo, pode, sem grande erro cronológico, datar os três manuscritos.
+O Coração reina desde 1844 até 1854. São aqueles dez anos em que nós vimos Silvestre fazer tolice brava.
+Em 1855 notamos a transfiguração do nosso amigo, que durou até 1860, época em que tu já tinhas trocado o Património da estima dos teus conterrâneos pelas lentilhas do Novo Mundo. Não viste, pois, a transição que o homem fez para o estômago, sepultura indigna das santas quimeras, que aconteceram na mocidade, e consequência funesta da má direcção que ele deu aos Projectos, raciocínios e sistemas da cabeça. Podemos assinar tempo ao terceiro volume, desde 1860 até fim de 61, em que o autobiógrafo se desmanchou do que era para se arranjar doutro feitio.
+Silvestre, como sabes, tinha muita lição de maus livros. Olha se te lembras que os seus folhetins eram um viveiro de imoralidades vestidas, ou nuas, à francesa. Jornal em que ele escrevesse morria ao fim do primeiro trimestre, depois de ter matado muitas ilusões. Quem hoje desembrulha um queijo flamengo, e lê no invólucro um folhetim de silvestre, mal pensará que tem entre as mãos o passaporte de muita gente para o inferno. Não há muito que eu, despejando uma quarta de mostarda num banho de pés, li o papel, que a contivera, e achei o seguinte período de um folhetim do meu saudoso amigo:
      
-     O Autor
+“Diz Petrónio que fora o medo que inventara as divindades.
+Deus é o que é. O homem é o pequeníssimo bicho da terra, de que fala o Camões.
+Entre Deus e o homem, só a soberba estúpida do homem podia inventar convenções, concordatas, obrigações e alianças.
+O sagui é muito menos estúpido e mais modesto. Come, bebe, dá cabriolas, faz caretas ao mau tempo, coça-se ao sol, retouça-se à sombra, vive, e acaba feliz, porque se não receia de vir a ser homem.
+A estolidez do homem! Diz ele empapado de vaidade tola: ‘Deus tem os olhos em mim!’ Que importância! Deus tem os olhos nele! Se assim fosse, havia de ver bonitas coisas o criador do homem que mata seu irmão!
+Os olhos nele, para quê? Para envergonhar-se a cada hora da sua obra!...
+É a blasfémia em todo o seu asco!
+Rebalsa-te em sangue, miserável vampiro! Emperla os teus cabelos, meretriz, que deixas morrer tua mãe de fome! Mãe infame, come aí em toalhas de Flandres o preço da desonra de tua filha! Ostentai-vos, vermes, aos olhos de Deus, que estão pasmos em vós!...”
      
-     
-
-     
-     
-     PREÂMBULO
-     
-     - O meu amigo Faustino Xavier de Novais conheceu perfeitamente aquele nosso amigo Silvestre da Silva...
-     - Ora, se conheci!... Como está ele?
-     - Está bem: está enterrado há seis meses.
-     - Morreu?!
-     - Não morreu, meu caro Novais. Um filósofo não deve aceitar no seu vocabulário a palavra morte, senão convencionalmente. Não há morte. O que há é metamorfose, transformação, mudança de feito. Pergunta tu ao doutíssimo poeta José Feliciano de Castilho o destino que tem a matéria. Dir-te-á a teu respeito o que disse de Ovídio, sujeito que não era mais material que tu e que o nosso amigo Silvestre da Silva. “Ovídio cadáver”, pergunta o sábio, “onde é que pára?” Tudo isso corre fados misteriosos, como Adão, como Noé, como Rómulo, como nossos pais, como nós, como nossos filhos, rolando pelos oceanos, flutuando nos ares, manando nas fontes, correndo nos rios, agregado nas pedras, sumido nas minas, misturado nos solos, viçando nas ervas, rindo nas flores, recendendo nos frutos, cantando nos bosques, rugindo nas matas, rojando dos vulcões, etc.” Isto, a meu ver, é exacto e, sobretudo, consolador. O nosso amigo Silvestre da Silva, a esta hora, anda repartido em partículas. Aqui faz parte da garganta dum rouxinol; além, é pétala duma tulipa; acolá, está consubstanciado num olho de alface; pode ser até que eu o esteja bebendo neste copo de água que tenho à minha beira e que tu o encontres nos sertões da América, alguma vez, transfigurado em cobra cascavel, disposto a comer-te, meu Faustino.
-     O que te eu assevero é que ele deixou de ser Silvestre da silva, há seis meses, posto que os parentes teimam em lhe ter uma lousa sobre o chão, onde o estiraram, com esta mentira: ‘Aqui jaz Silvestre da Silva.’
-     Pois é verdade.
-     O nosso amigo começou a queixar-se, há de haver um ano, de falta de apetite, e frialdade de estômago, efeito das indigestões. Foi de mal a pior. Desconfiou que passava a outra metamorfose, e deu ordem aos seus negócios da alma com a eternidade. Dos bens terrenos não fez deixação, porque lá estavam os credores, seus presuntivos herdeiros, ainda que alguns deles declinaram a herança a benefício de inventário, lamentando que em Portugal não fosse lei a prisão por dívidas: parece que os irritou a certeza de que o cadáver insolvente não podia ser preso. Em outro ponto te darei mais detida notícia desta catástrofe.
-     Eu fui o herdeiro dos seus papéis. Alguns credores quiseram disputarmos, cuidando que eram papéis de crédito. Fiz-lhes entender que eram pedaços dum romance; e eles, renunciando a posse, disseram que tais pataratices deviam chamar-se papelada, e não papéis.
-     Aceitei a distinção como necessária e retirei com a papelada, resolvido a dá-la à estampa, e com o produto dela ir resgatando a palavra do nosso defunto amigo, embolsando os credores os credores. Fiz um cálculo aproximado, que me anima a asseverar aos credores de Silvestre da Silva que hão de ser plenamente pagos, feita a 10.ª edição deste romance.
-     Aqui tens tu uma acção que deve ser extremamente agradável às moléculas circunfusas do nosso amigo. Espero que Silvestre ainda venha a agradecer-me o culto que assim dou à memória dele, convertido em aroma de flor, em linha de cristalina fonte, ou em Ambrósia de vinho do Porto, metamorfose mais que muito honrosa, mas pouco admirativa nele, que foi deste mundo já saturado em bom vinho. É opinião minha que o nosso amigo, a esta hora, é uma folhuda parreira.
-     Vamos à papelada, como dizem os outros.
-     Tenho debaixo dos olhos, mal enxutos da saudade, três volumes escritos da mão de Silvestre.
-     O primeiro, na lauda, que serve de capa, tem a seguinte inscrição em letras maiúsculas: Coração.
-     O segundo, menos volumoso, diz: Cabeça.
-     O título do terceiro, e maior volume, é: Estômago.
-     Nenhum deles designa época; mas quem tiver, como eu, particular conhecimento do indivíduo, pode, sem grande erro cronológico, datar os três manuscritos.
-     O Coração reina desde 1844 até 1854. São aqueles dez anos em que nós vimos Silvestre fazer tolice brava.
-     Em 1855 notamos a transfiguração do nosso amigo, que durou até 1860, época em que tu já tinhas trocado o Património da estima dos teus conterrâneos pelas lentilhas do Novo Mundo. Não viste, pois, a transição que o homem fez para o estômago, sepultura indigna das santas quimeras, que aconteceram na mocidade, e consequência funesta da má direcção que ele deu aos Projectos, raciocínios e sistemas da cabeça. Podemos assinar tempo ao terceiro volume, desde 1860 até fim de 61, em que o autobiógrafo se desmanchou do que era para se arranjar doutro feitio.
-     Silvestre, como sabes, tinha muita lição de maus livros. Olha se te lembras que os seus folhetins eram um viveiro de imoralidades vestidas, ou nuas, à francesa. Jornal em que ele escrevesse morria ao fim do primeiro trimestre, depois de ter matado muitas ilusões. Quem hoje desembrulha um queijo flamengo, e lê no invólucro um folhetim de silvestre, mal pensará que tem entre as mãos o passaporte de muita gente para o inferno. Não há muito que eu, despejando uma quarta de mostarda num banho de pés, li o papel, que a contivera, e achei o seguinte período de um folhetim do meu saudoso amigo:
-     
-     “Diz Petrónio que fora o medo que inventara as divindades.
-     Deus é o que é. O homem é o pequeníssimo bicho da terra, de que fala o Camões.
-     Entre Deus e o homem, só a soberba estúpida do homem podia inventar convenções, concordatas, obrigações e alianças.
-     O sagui é muito menos estúpido e mais modesto. Come, bebe, dá cabriolas, faz caretas ao mau tempo, coça-se ao sol, retouça-se à sombra, vive, e acaba feliz, porque se não receia de vir a ser homem.
-     A estolidez do homem! Diz ele empapado de vaidade tola: ‘Deus tem os olhos em mim!’ Que importância! Deus tem os olhos nele! Se assim fosse, havia de ver bonitas coisas o criador do homem que mata seu irmão!
-     Os olhos nele, para quê? Para envergonhar-se a cada hora da sua obra!...
-     É a blasfémia em todo o seu asco!
-     Rebalsa-te em sangue, miserável vampiro! Emperla os teus cabelos, meretriz, que deixas morrer tua mãe de fome! Mãe infame, come aí em toalhas de Flandres o preço da desonra de tua filha! Ostentai-vos, vermes, aos olhos de Deus, que estão pasmos em vós!...”
-     
-     Ainda bem que o fragmento findava nisto, senão eu teria a imprudência de to dar inteiro nesta cópia, em que senti as repugnâncias do pulso. Vê tu que missionário era aquele Silvestre! Que ceifa de almas fez o empreiteiro das trevas inferiores naqueles anos!
-     Eu de mim pude salvar-me, estudando, como sabes, a teologia a fundo. Tu também te salvaste, penso eu, justamente porque não sabias coisa nenhuma de teologia e acreditavas na religião de teus pais, visto que a base fundamental da tua crença era a caridade. Acertou de ser isto num tempo em que tu pedias esmola para as freiras de Lorvão e eu, também contigo, pedia esmola no Teatro de S. João, para o poeta Bingre.
-     Recorda-te, Novais; mas não chores. Faz como eu: ergue o peito de sobre a banca do trabalho e sacode a lájea que te está pesando nas costas... Olha a vaidade! Teremos nós sepultura com lájea!? Conta com um comarozinho de terra, e umas papoulas na Primavera, e uma tábua preta com um número branco. A aritmética há de perseguir-me além da morte!
-     Atemos o fio.
-     Os manuscritos de Silvestre careciam de ser adulterados para merecerem a qualificação de romance. É coisa que eu não faria, se pudesse. Acho aqui em páginas correntemente numeradas sucessos sem ligação nem contingência. Umas histórias em princípio, outras que começam pelo fim e outras que não tem fim nem princípio. Pode ser que eu, alguma vez, em notas, elucide as escuridades do texto, ou ajunte às histórias incompletas a catástrofe, que sucedeu em tempo que o meu amigo se retirara da sociedade, onde deixara a víscera dos afectos.
-     No volume denominado Coração encontro algumas poesias, que não traslado, por desmerecerem publicidade, sobre serem imprestáveis ao contexto da obra. Não designam as pessoas a quem foram dedicadas, nem me parecem coisa de grande inspiração. Silvestre, em poesia, era vulgar; e a poesia vulgar, mormente na pátria dos Junqueiros, dos Álvares de Azevedo, dos Casimiros de Abreu e dos Gonçalves Dias, é um pecado publicá-la. Sonego, pois, as poesias, em abono da reputação literária do nosso amigo.
-     Basta de preâmbulo.
+Ainda bem que o fragmento findava nisto, senão eu teria a imprudência de to dar inteiro nesta cópia, em que senti as repugnâncias do pulso. Vê tu que missionário era aquele Silvestre! Que ceifa de almas fez o empreiteiro das trevas inferiores naqueles anos!
+Eu de mim pude salvar-me, estudando, como sabes, a teologia a fundo. Tu também te salvaste, penso eu, justamente porque não sabias coisa nenhuma de teologia e acreditavas na religião de teus pais, visto que a base fundamental da tua crença era a caridade. Acertou de ser isto num tempo em que tu pedias esmola para as freiras de Lorvão e eu, também contigo, pedia esmola no Teatro de S. João, para o poeta Bingre.
+Recorda-te, Novais; mas não chores. Faz como eu: ergue o peito de sobre a banca do trabalho e sacode a lájea que te está pesando nas costas... Olha a vaidade! Teremos nós sepultura com lájea!? Conta com um comarozinho de terra, e umas papoulas na Primavera, e uma tábua preta com um número branco. A aritmética há de perseguir-me além da morte!
+Atemos o fio.
+Os manuscritos de Silvestre careciam de ser adulterados para merecerem a qualificação de romance. É coisa que eu não faria, se pudesse. Acho aqui em páginas correntemente numeradas sucessos sem ligação nem contingência. Umas histórias em princípio, outras que começam pelo fim e outras que não tem fim nem princípio. Pode ser que eu, alguma vez, em notas, elucide as escuridades do texto, ou ajunte às histórias incompletas a catástrofe, que sucedeu em tempo que o meu amigo se retirara da sociedade, onde deixara a víscera dos afectos.
+No volume denominado Coração encontro algumas poesias, que não traslado, por desmerecerem publicidade, sobre serem imprestáveis ao contexto da obra. Não designam as pessoas a quem foram dedicadas, nem me parecem coisa de grande inspiração. Silvestre, em poesia, era vulgar; e a poesia vulgar, mormente na pátria dos Junqueiros, dos Álvares de Azevedo, dos Casimiros de Abreu e dos Gonçalves Dias, é um pecado publicá-la. Sonego, pois, as poesias, em abono da reputação literária do nosso amigo.
+Basta de preâmbulo.
      
      
-
-
-
-
-
 PRIMEIRA PARTE
+          
+CORAÇÃO
      
-     
-     
-     CORAÇÃO
-     
-     Coisas há hi, que passam ser sem cridas,
-     E coisas cridas há sem ser passadas...
-     Mas o melhor de tudo é crer em Cristo.
-      CAMÕES. (Soneto.)
+Coisas há hi, que passam ser sem cridas,
+E coisas cridas há sem ser passadas...
+Mas o melhor de tudo é crer em Cristo.
+CAMÕES. (Soneto.)
      
 
      
+SETE MULHERES
+I
+O meu noviciado de amor passei-o em Lisboa. Amei as primeiras sete mulheres que vi e que me viram.
+A primeira era uma órfã, que vivia da caridade de um ourives, amigo do seu defunto pai. Chamava-se Leontina. Fiz versos a Leontina, sonetos em rima fácil, e muito errados, como tive ocasião de verificar, quando os quis dedicar a outra, dois anos depois.
+Leontina não tinha caligrafia nem ideias; mas os olhos eram bonitos e o jeito de encostar a face à mão tinha encantos.
+Era minha vizinha. Por desgraça também, era meu vizinho um algibebe que morria de amores por ela, e, à conta deste amor, se ia arruinando, por descuidar-se em chamar freguesia, como os seus rivais, que saíam à rua a puxar pelos indivíduos suspeitos de quererem comprar. Aristocratizara-o o amor: envergonhava-se ele de tais alicantinas, debaixo do olhar distraído da mulher amada.
+Odiava-me o algibebe. Recebi uma carta anónima, que devia ser sua. Era lacónica e sumária: “Se não muda de casa, qualquer noite é assassinado”. Pouco mais dizia.
+Contei a Leontina, em estilo alegre, com presunçoso desprezo da morte, o perigo em que estava minha vida, por amor dela. Indiquei o algibebe como autor da cara. A menina, que tivera o desfastio de lhe receber noutro tempo algumas, conheceu a letra mal disfarçada. Tomou-lhe raiva, fez-lhe arremessos e induziu a criada a atirar-lhe com uma casca de melão. Que lhe sujou um colete de veludinho amarelo e verde com listas encarnadas e pintas roxas. Que colete!
+Passados tempos, Leontina desapareceu com a família; e, ao outro dia, recebi dela um bilhete, escrito em Almada. Dizia-me que o algibebe escrevera ao seu padrinho uma carta anónima, denunciando o namoro comigo. O padrinho ordenou logo a saída para a quinta de Almada.
+O padrinho era o ourives, sujeito de cinquenta anos, viúvo, com duas filhas mulheres, das quais amargamente Leontina se queixava. As filhas do ourives, receando que o pai se casasse com a órfã, queriam-lhe mal, e folgavam de a ver nas presas de alguma paixão, que a arrastasse ao crime, para assim se livrarem da temerosa perspectiva de tal madrasta.
+E o certo é que o ourives pensava em casar com Leontina, logo que as filhas se arrumassem. Estas, porém, sobre serem feias, tinham contra si a repugnância do pai no dotá-las em vida. Ninguém as queria para passatempo e menos ainda para esposas.
+Picado pelo ciúme, abriu o ourives seu peito à órfã, ofereceu-lhe a mão, e uma pulseira de brilhantes nela, com a condição de me esquecer.
+Leontina disse que sim, cuidando que mentia; mas passados oito dias admirou-se de ter dito a verdade. Nunca mais soube de mim, nem eu dela; até que, um ano depois, a criada, que a servia, me contou que a menina casara com o padrinho e que as enteadas, coagidas pelo pai, se tinham ido para o recolhimento do Grilo com uma pequena mesada e a esperança de ficarem pobres. Não sei mais nada a respeito da primeira das sete mulheres que amei, em Lisboa.
      
+Nota
      
-     
-    SETE MULHERES
-     
-     I
-     
-     O meu noviciado de amor passei-o em Lisboa. Amei as primeiras sete mulheres que vi e que me viram.
-     A primeira era uma órfã, que vivia da caridade de um ourives, amigo do seu defunto pai. Chamava-se Leontina. Fiz versos a Leontina, sonetos em rima fácil, e muito errados, como tive ocasião de verificar, quando os quis dedicar a outra, dois anos depois.
-     Leontina não tinha caligrafia nem ideias; mas os olhos eram bonitos e o jeito de encostar a face à mão tinha encantos.
-     Era minha vizinha. Por desgraça também, era meu vizinho um algibebe que morria de amores por ela, e, à conta deste amor, se ia arruinando, por descuidar-se em chamar freguesia, como os seus rivais, que saíam à rua a puxar pelos indivíduos suspeitos de quererem comprar. Aristocratizara-o o amor: envergonhava-se ele de tais alicantinas, debaixo do olhar distraído da mulher amada.
-     Odiava-me o algibebe. Recebi uma carta anónima, que devia ser sua. Era lacónica e sumária: “Se não muda de casa, qualquer noite é assassinado”. Pouco mais dizia.
-     Contei a Leontina, em estilo alegre, com presunçoso desprezo da morte, o perigo em que estava minha vida, por amor dela. Indiquei o algibebe como autor da cara. A menina, que tivera o desfastio de lhe receber noutro tempo algumas, conheceu a letra mal disfarçada. Tomou-lhe raiva, fez-lhe arremessos e induziu a criada a atirar-lhe com uma casca de melão. Que lhe sujou um colete de veludinho amarelo e verde com listas encarnadas e pintas roxas. Que colete!
-     Passados tempos, Leontina desapareceu com a família; e, ao outro dia, recebi dela um bilhete, escrito em Almada. Dizia-me que o algibebe escrevera ao seu padrinho uma carta anónima, denunciando o namoro comigo. O padrinho ordenou logo a saída para a quinta de Almada.
-     O padrinho era o ourives, sujeito de cinquenta anos, viúvo, com duas filhas mulheres, das quais amargamente Leontina se queixava. As filhas do ourives, receando que o pai se casasse com a órfã, queriam-lhe mal, e folgavam de a ver nas presas de alguma paixão, que a arrastasse ao crime, para assim se livrarem da temerosa perspectiva de tal madrasta.
-     E o certo é que o ourives pensava em casar com Leontina, logo que as filhas se arrumassem. Estas, porém, sobre serem feias, tinham contra si a repugnância do pai no dotá-las em vida. Ninguém as queria para passatempo e menos ainda para esposas.
-     Picado pelo ciúme, abriu o ourives seu peito à órfã, ofereceu-lhe a mão, e uma pulseira de brilhantes nela, com a condição de me esquecer.
-     Leontina disse que sim, cuidando que mentia; mas passados oito dias admirou-se de ter dito a verdade. Nunca mais soube de mim, nem eu dela; até que, um ano depois, a criada, que a servia, me contou que a menina casara com o padrinho e que as enteadas, coagidas pelo pai, se tinham ido para o recolhimento do Grilo com uma pequena mesada e a esperança de ficarem pobres. Não sei mais nada a respeito da primeira das sete mulheres que amei, em Lisboa.
-     
-     
-     Nota
-     
-     Eu sei mais alguma coisa que merece crónica.
-     Leontina subjugou o ânimo do marido; descobriu que ele era rico e gozou quanto podia das regalias do mundo, as quais vivera estranha até aos vinte e quatro anos. O ourives tomou gosto aos prazeres e esqueceu o valor do dinheiro, excepto o que dava às filhas, que lhe saía da secretária com pedaços de vida. Começaram pelos arlequins e pelos touros e acabaram no Teatro de S. Carlos o refinamento do gosto.
-     Leontina andou falada na sua roda, como esposa fiel e admirável vencedora de tentações. Quase todos os amigos particulares do marido a cortejaram, sem resultado. Deu bailes em sua casa, donde era frequente saírem os convidados penhorados, às quatro horas da manhã; mas, duma vez, não saíram todos; ficou um escondido no quarto da criada, e lá passou o dia seguinte. O ourives ignorou muito tempo que a sua lealdade não era dignamente correspondida: porém, suspeitando um dia que a criada o roubava, fez-lhe uma visita domiciliária ao quarto, sem prevenir a esposa, e achou lá o filho do seu primo Anselmo, dormindo sobre a cama da moça, com a segurança de quem dorme em sua casa. Estava de moiras amarelas e vestia um chambre de lã do dono da casa! É o escândalo e mangação!
-     Foi chamada Leontina a altos gritos. Acordou o filho de Anselmo e foi procurar na algibeira do paletó um revólver. O quinquagenário viu cinco bocas de ferro, mais persuasivas que a boca de ouro de Crisóstomo, o santo. Passou ao andar de baixo e gritou pelo código criminal. Leontina tinha fugido para casa da sua amiga e vizinha D. Carlota, pessoa de hipotética probidade. O escandaloso possessor do chambre despiu-o, vestiu-se, sacudiu as moiras amarelas, sentou-se a calçar as botas, acendeu um charuto, desceu as escadas serenamente e encontrou-se no pátio com dois cabos de polícia e um municipal. Dali foi para o administrador, que o mandou reter até ulteriores explicações.
+Eu sei mais alguma coisa que merece crónica.
+Leontina subjugou o ânimo do marido; descobriu que ele era rico e gozou quanto podia das regalias do mundo, as quais vivera estranha até aos vinte e quatro anos. O ourives tomou gosto aos prazeres e esqueceu o valor do dinheiro, excepto o que dava às filhas, que lhe saía da secretária com pedaços de vida. Começaram pelos arlequins e pelos touros e acabaram no Teatro de S. Carlos o refinamento do gosto.
+Leontina andou falada na sua roda, como esposa fiel e admirável vencedora de tentações. Quase todos os amigos particulares do marido a cortejaram, sem resultado. Deu bailes em sua casa, donde era frequente saírem os convidados penhorados, às quatro horas da manhã; mas, duma vez, não saíram todos; ficou um escondido no quarto da criada, e lá passou o dia seguinte. O ourives ignorou muito tempo que a sua lealdade não era dignamente correspondida: porém, suspeitando um dia que a criada o roubava, fez-lhe uma visita domiciliária ao quarto, sem prevenir a esposa, e achou lá o filho do seu primo Anselmo, dormindo sobre a cama da moça, com a segurança de quem dorme em sua casa. Estava de moiras amarelas e vestia um chambre de lã do dono da casa! É o escândalo e mangação!
+Foi chamada Leontina a altos gritos. Acordou o filho de Anselmo e foi procurar na algibeira do paletó um revólver. O quinquagenário viu cinco bocas de ferro, mais persuasivas que a boca de ouro de Crisóstomo, o santo. Passou ao andar de baixo e gritou pelo código criminal. Leontina tinha fugido para casa da sua amiga e vizinha D. Carlota, pessoa de hipotética probidade. O escandaloso possessor do chambre despiu-o, vestiu-se, sacudiu as moiras amarelas, sentou-se a calçar as botas, acendeu um charuto, desceu as escadas serenamente e encontrou-se no pátio com dois cabos de polícia e um municipal. Dali foi para o administrador, que o mandou reter até ulteriores explicações.
      Leontina, dias depois, foi para o Convento da Encarnação, onde esteve dois anos e donde saiu a tomar caldas em Torres Vedras, por consenso do marido, que a foi lá visitar e de lá foi com ela à exposição à Londres. Da volta da viagem, o ourives morreu hidrópico, legando às filhas umas inscrições, que rendem para ambas um cruzado diário, e à esposa uma independência farta em títulos bancários e em géneros de ourivesaria.
      Consta-me que Leontina se lembrara então de Silvestre; mas ignorava que destino ele tivesse. Incumbiu um compadre de indagar se estava no Porto o homem; a resposta demorou-se alguns dias, sete, creio eu, e ao sexto já ela estava em indagações da vida e costumes dum sujeito de bigode e pêra, que à mesma hora de cada tarde lhe passava à porta num tiburi, tirado por uma orça. Fácil lhe foi saber que o sujeito fora, cinco anos antes, algibebe, tirara o prémio da Lotaria de Espanha e fechara a loja. Era o mesmo algibebe que levara no colete de veludinho com a casca de melão. Que mudança de cara e de maneiras ele fizera! O dinheiro faz essas mudanças e outras mais espantosas ainda. Chegaram à fala, deram-se explicações e casaram. Eu tive ocasião de os ver ontem no seu palacete a Buenos Aires. Estão gordos, ricos e muito considerados na sua rua.
      
