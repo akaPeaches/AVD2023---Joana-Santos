@@ -4,121 +4,121 @@ Author: Camilo Castelo Branco
 Date: 1866
 Type: Romance
 ---
-    Dedicatória
+Dedicatória
      
-     Il.{mo} e Ex.{mo} SR. António Rodrigues Sampaio
+Il.{mo} e Ex.{mo} SR. António Rodrigues Sampaio
      
-     Meu amigo.
-     Volto a oferecer-lhe uma das minhas bagatelas. Chamo assim, para me fingir modesto, bagatelas a umas coisas que eu reputo no máximo valor. Se não fossem elas, naturalmente eu não chegaria a granjear a estima de V. Exª, que mas tem lido, e alguma vez louvado. Já V. Exª, antes de me conhecer, quis encravar a roda do meu infortúnio, roda com que eu estou sempre brincando como as crianças com os seus arcos. Que tinha eu feito para comover a benquerença do meu prestante amigo? Tinha feito uns livros futilíssimos, à imitação deste que lhe ofereço.
-     Não é esta boa oportunidade de eu vir com a minha oblação de pobre a V. Exª lembra-me a sentença do nosso Diogo de Teive:
+Meu amigo.
+Volto a oferecer-lhe uma das minhas bagatelas. Chamo assim, para me fingir modesto, bagatelas a umas coisas que eu reputo no máximo valor. Se não fossem elas, naturalmente eu não chegaria a granjear a estima de V. Exª, que mas tem lido, e alguma vez louvado. Já V. Exª, antes de me conhecer, quis encravar a roda do meu infortúnio, roda com que eu estou sempre brincando como as crianças com os seus arcos. Que tinha eu feito para comover a benquerença do meu prestante amigo? Tinha feito uns livros futilíssimos, à imitação deste que lhe ofereço.
+Não é esta boa oportunidade de eu vir com a minha oblação de pobre a V. Exª lembra-me a sentença do nosso Diogo de Teive:
      
-     “Donat cum egenus diviti 
-     Retia videtur tendere”.
+“Donat cum egenus diviti 
+Retia videtur tendere”.
      
-     Os praguentos hão de querer ver aquelas redes, por que não sabem que V. Exª já me constituiu, há muito, no dever de eterna e profunda gratidão.
-     
-     
-     Leça da Palmeira, 27 de setembro de 1865.
-     Camilo Castelo Branco
-     
-
+Os praguentos hão de querer ver aquelas redes, por que não sabem que V. Exª já me constituiu, há muito, no dever de eterna e profunda gratidão.
      
      
-    I
-    O herói do conto
-     
-     Calisto Elói de Silos e Benevides de Barbuda, morgado da Agra de Freimas, tem hoje quarenta e nove anos, por ter nascido em 1815, na aldeia de Cassarelhos, termo de Miranda.
-     Seu pai, também Calisto, era cavaleiro fidalgo com filhamento, e décimo sexto varão dos Barbudas da Agra. Sua mãe, D. Basilissa Escolástica, procedia dos Silos, altas dignidades da igreja, comendatários, sangue limpo, já bom sangue no tempo do senhor rei D. Afonso I, fundador de Miranda.
-     Fez seus estudos de latinidade no seminário bracarense o filho único do morgado da Agra de Freimas, destinando-se a doutoramento “in utroque jure”. Porém, como quer que o pai lhe falecesse, e a mãe contrariasse a projectada formatura, em razão de ficar sozinha no solar de Cassarelhos, Calisto, como bom filho, renunciou à carreira das letras, deu-se ao governo da casa algum tanto, e muito à leitura da copiosa livraria, parte de seus avós paternos, e a maior dos doutores em cânones, cónegos, desembargadores do eclesiástico, catedráticos, chantres, arcediagos e bispos, parentela ilustríssima de sua mãe.
-     Casou o morgado, ao tocar pelos vinte anos, com sua segunda prima D. Teodora Barbuda de Figueiroa, morgada de Travanca, senhora de raro aviso, e muito apontada em amanho de casa, e ignorante mais que o necessário para ter juízo.
-     Unidos os dois morgadios, ficou sendo a casa de Calisto a maior da comarca; e, com o rodar de dez anos, prosperou a olho, tendo grande parte neste incremento a parcimónia a que o morgado circunscreveu seus prazeres, e, por sobre isto, o génio cainho e apertado de D. Teodora.
-     Remenda teu pano, chegar-te-á ao ano, dizia a morgada de Travanca; e, aferrada ao seu adágio predilecto, remendava sempre, e cerzia com perfeição justamente admirada entre a família, e falada como exemplo na área de quatro léguas, ou mais.
-     Enquanto ela recortava o fundilho ou apanhava a malha rota da pinga, o marido lia até noite velha, e adormecia sobre os in-folios, e acordava a pedir contas à memória das riquezas confiadas.
-     Os livros de Calisto Elói eram cronicões, histórias eclesiásticas, biografias de varões preclaros, corografias, legislação antiga, forais, memórias da Academia Real da História Portuguesa, catálogos de reis, numismática, genealogias, anais, poemas de cunho velho, etc.
-     Respeito a idiomas estranhos, dos vivos conhecia o francês muito pela rama; porém, o latim falava-o como língua própria, e interpretava correntemente o grego.
-     Memória pronta, e cultivada com aturado e indigesto estudo, não podia sair-se com menos de um erudito em história antiga, e repositório de notícias miúdas sobre factos e pessoas de Portugal.
-     Consultavam-no os sábios transmontanos como juiz indeclinável em decifrar cipos e inscrições, em restabelecer épocas e sucessos controvertidos por autores contraditórios.
-     Sobre castas e linhagens, coisa que ele tirasse a limpo, não dava pega a dúvida nenhuma. Ia ele desenterrar geração já sepultada há setecentos anos, e provar que, na era de 1201, D. Fuas Mendo casara com a filha de um mesteiral, e D. Dorzia se havia sujado casando mofinamente com um pagem da lança de seu irmão D. Paio Ramires.
-     Farpeados pela viperina língua dele, os fidalgos provincianos retaliavam quanto podiam a prosápia dos Benevides, propalando que naquela família se gerara um clérigo grande femeeiro, beberrão e lambaz, a quem o santo arcebispo D. Frei Bartolomeu dos Mártires, uma vez, perguntara que nome havia; e, como quer que o padre respondesse Onofre de Benevides, o arcebispo acudira dizendo: Melhor vos acertará com o nome, segundo a vida que fazeis, quem vos chamará de Bene bibis e male vivis.»[1] O remoque, talvez por ser de santo, era medianamente engraçado e pouco para afligir; assim mesmo Calisto Elói, à conta desta injúria dos fidalgos comarcãos, tanto lhes esgravatou nas gerações, que descobriu radicalmente serem quase todas de má casta.
-     É supérfluo dizer-se a qual doutrinação política pendia o ânimo do morgado da Agra de Freimas. Estava com a decisão das cortes de Lamego. Fizera-se nelas, e cuidava ter assistido, em 1145, àquele congresso mitológico, e ter conclamado com Gonçalo Mendes da Maia, o Lidador, e com Lourenço Viegas, o Espadeiro: “Nos liberi sumus, rex noster liber est”.[2] Todavia, se assim fossem todos os doutrinários políticos, a gente apodrecia na mais refestelada paz, e supina ignorância do andamento da humanidade.
-     Calisto Elói de Silos e Benevides de Barbuda queria que se venerasse o passado, a moral antiga como o monumento antigo, as leis de João das Regras e Martim de Ocem, como o mosteiro da Batalha, as ordenações manuelinas como o convento dos Jerónimos.
-     O mal que daqui surdia ao género humano, a falar verdade, era nenhum. Este bom fidalgo, se lhe tirassem o sestro de esmiuçar desdouros nas gerações das famílias patriciatas, era inofensiva criatura. Deste senão, a causa foi um chamado Livro-negro, que herdara de seu tio avô Marcos de Barbuda Tenazes de Lacerda Falcão, genealógico pavoroso, o qual gastara sessenta dos oitenta anos vividos, a coligir borrões, travessias, mancebias, adultérios, coitos danados, e incestos de muitas famílias naquelas satânicas costaneiras, denominadas “Livro-negro das linhagens de Portugal”.
-     Em suma, Calisto era legitimista quieto, calado, e incapaz de empecer a roda do progresso, com tanto que ele não lhe entrasse em casa, nem o quisesse levar consigo.
-     Prova cabal de sua tolerância foi ele aceitar em 1840 a presidência municipal de Miranda. Na primeira sessão camarária falou de feitio e jeito, que os ouvintes cuidavam estar escutando um alcaide do século XV levantado do seu jazigo da catedral. Queria ele que se restaurassem as leis do foral dado a Miranda pelo monarca fundador. Este requerimento gelou de espanto os vereadores; destes, os que puderam degelar-se, riram na cara do seu presidente, e emendaram a galhofa dizendo que a humanidade havia já caminhado sete séculos depois que Miranda tivera foral.
-     - Pois se caminhou, - replicou o presidente, - não caminhou direita. Os homens são sempre os mesmos e quejandos; as leis devem ser sempre as mesmas.
-     - Mas... - retorquiu a oposição ilustrada, - o regimen municipal expirou em 1211, sr. presidente! V. Exª não ignora que há hoje um código de leis comuns de todo o território português, e que desde Afonso II se estatuíram leis gerais. V. Exª de certo leu isto...
-     - Li - atalhou Calisto de Barbuda, - mas reprovo!
-     - Pois seria útil e racional que V. Exª aprovasse.
-     - Útil a quem? - perguntou o presidente.
-     - Ao município -, responderam.
-     - Aprovem os srs. vereadores, e façam obra por essas leis, que eu despeço-me disto. Tenho o governo de minha casa, onde sou rei e governo, segundo os forais da antiga honra portuguesa.
-     Disse; saiu; e nunca mais voltou à câmara.
+Leça da Palmeira, 27 de setembro de 1865.
+Camilo Castelo Branco
      
 
      
      
-    II
-    Dois candidatos
+I
+O herói do conto
      
-     Desde o qual incidente, o morgado, convicto da podridão dos vereadores em particular, e da humanidade em geral, prometeu a onze retratos, que tinha de onze avós, pintados indignamente, nunca mais tocar o cancro social com suas mãos impolutas.
-     neste propósito, nem ao menos consentiu que o vigário lhe mandasse o Periódico dos Pobres do Porto de que era assinante emparceirado com mais quatro reitores limítrofes, e o mestre escola e o boticário.
-     Um dia, porém, quando ele saía da festividade de S. Sebastião, cujo mordomo era, deteve-se no adro, onde o rodearam os mais graúdos lavradores da sua freguesia e das vizinhas. Noutro grupo, falava-se do sermão, e da constância do santo capitão das guardas do bárbaro Diocleciano, e da desmoralização do império.
-     Estas puxadas reflexões era o boticário que as expendia, coadjuvado pelo mestre de primeiras letras, sujeito que sabia mais história romana do que é permitido a um professor da preciosa e capitalissima ciência de ler, contar e escrever, pelo que o sábio vinha a granjear para a humanidade a ciência, e para ele nove vinténs e meio por dia. E comia o sábio estes nove vinténs e meio quotidianos, e ensinava os rapazes, e sobejava-lhe tempo para ler história! Pudera!... Os governos davam-lhe férias grandes ao estômago, em proveito do espírito. Se ele andasse bem nutrido e sucado de tripa, não aprendia nem ensinava coisa de monta. Que a pobreza é o estímulo das maiores façanhas da inteligência. Paupertas impulit audax [3]. Isto que o Horácio faminto dizia de si, acomodam-no os regedores da coisa pública aos professores de primeiras letras; porém, outros muitos versos do Horácio farto, esses tomam-nos eles para seu uso.
-     Estava, pois, o mestre-escola, de parceria com o boticário, a castigar a perversidade dos imperadores romanos, por amor do mártir S. Sebastião, que, segunda vez, acabava de ser frechado no panegírico. neste comenos, abeirou-se deles Calisto Elói, e para logo se calaram as duas capacidades, em referência ao Salomão da terra.
-     - Que dizem vocemecês? - perguntou Calisto benignamente. - Continuem.. Parece que falavam do santo.
-     - É verdade, sr. Morgado - acudiu o boticário, ajustando os colarinhos percucientes ao lóbulo das orelhas, escarlates do atrito da goma. - Falávamos na malvadez dos imperadores pagãos.
-     - Sim! - disse Calisto, com proeminência declamatória, - sim! Horrorosos tempos aqueles foram! Mas os tempos actuais não se diferenciam tanto dos antigos, que possamos, em consciência e ciência, encarecer o presente e praguejar o passado. Diocleciano era pagão, cego à luz da graça: os crimes dele hão de ser contrapesados, e descontados, na balança divina, com a ignorância do delinquente. Ai, porém, dos que prevaricaram fechando olhos à luz da notória verdade, afim de se fingirem cegos! Ai dos ímpios, cujas entranhas estão afistuladas de herpes! No grande dia, funestíssima há de ser a sentença deles, novos Calígulas, novos Tibérios, e Dioclecianos novos!
-     Relanceou o farmacêutico uma olhadela esguelhada ao professor, o qual, abanando três vezes e de compasso a cabeça, dava assim a perceber que abundava na admiração do seu amigo e consócio erudito em história romana.
-     Obrigado às orelhas do auditório atento, Calisto, em toada de Ezequiel, continuou:
-     - Portugal está alagado pela onda da corrupção, que subverteu a Roma imperial! Os costumes de nossos maiores são metidos a riso! As leis antigas, que eram o baluarte das antigas virtudes, dizem os sicofantas modernos, que já não servem à humanidade, a qual, em consequência de ter mais sete séculos, se emancipou da tutela das leis. (Alusão ervada aos vereadores de Miranda, que discreparam do intento restaurador do foral dado por D. Afonso. Vinham a ser sicofantas os colegas municipalenses.) Credite, posteri! - exclamou Calisto Elói com ênfase, nobilitando a postura.
-     O latim não lho entenderam, salvo o mestre-escola, que antes de ser sargento de milícias, havia sido donato no convento dominicano de Vila-Real.
-     E repetiu: Credite, posteri!
-     nesta ocasião, saiu da igreja a sr.a D. Teodora Figueiroa, e disse ao esposo:
-     - Vem daí, Calisto. Vamos jantar, que é uma hora, e já lá vai o padre pregador para casa.
-     Engoliu o morgado três frases de polpa, que lhe inflavam os bócios, e foi ao jantar, sacrificando-se à regularidade das suas horas inalteráveis de repasto.
-     Ficaram o boticário e o professor de primeiras letras, e mais os lavradores, ruminando as palavras do fidalgo, e glosando-as de notas ilustrativas, ao alcance das capacidades.
-     Um dos mais graves e anciãos lavradores, regedor, ensaiador e ponto nos entremezes do entrudo exclamou:
-     - Aquilo é que dava um deputado às direitas! Um homem assim, se fosse a Lisboa falar ao rei, as contribuições haviam de acabar!
-     - Isso não, perdoará vocemecê, tio José do Cruzeiro, - observou o mestre-escola - os impostos é necessário pagá-los. Sem impostos, não haveria rei nem professores de instrução primária (observem a modéstia da gradação!) nem tropa, nem anatomia nacional.
-     O mestre-escola havia lido, repetidas vezes no Periódico dos Pobres, as palavras autonomia nacional.
-     Falhou-lhe desta feita a memória, lapso que não destoou em nenhumas orelhas, exceptuadas as do boticário, que resmungou:
-     - Anatomia nacional!
-     - Que é?! - perguntou ao farmacêutico um estudante de clérigo.
-     - Parece-me que é asneira! - respondeu o outro com certa indecisão.
-     Prosseguiu, concluindo, o mestre-escola:
-     - E, portanto os tributos, tio José do Cruzeiro, são necessários ao estado como a água aos milhos. Ora, agora, que há muito quem bebe o suor do povo, isso há; e aqueles, que deviam ser bem pagos, são os que menos comem da fazenda nacional. Aqui estou eu, que sou um funcionário indispensável à pátria, e receberia cento e noventa réis por dia, se não trouxesse rebatidos seis recibos a trinta e seis por cento, de modo que venho a receber seis e cinco! Que país!... O senhor morgado disse bem: estamos chegados aos tempos dos Dioclecianos e Calígulas!
-     O auditório já vacilava em decidir qual dos dois era mais talhado para ir falar ao rei a Lisboa, se Calisto, se o mestre escola.
+Calisto Elói de Silos e Benevides de Barbuda, morgado da Agra de Freimas, tem hoje quarenta e nove anos, por ter nascido em 1815, na aldeia de Cassarelhos, termo de Miranda.
+Seu pai, também Calisto, era cavaleiro fidalgo com filhamento, e décimo sexto varão dos Barbudas da Agra. Sua mãe, D. Basilissa Escolástica, procedia dos Silos, altas dignidades da igreja, comendatários, sangue limpo, já bom sangue no tempo do senhor rei D. Afonso I, fundador de Miranda.
+Fez seus estudos de latinidade no seminário bracarense o filho único do morgado da Agra de Freimas, destinando-se a doutoramento “in utroque jure”. Porém, como quer que o pai lhe falecesse, e a mãe contrariasse a projectada formatura, em razão de ficar sozinha no solar de Cassarelhos, Calisto, como bom filho, renunciou à carreira das letras, deu-se ao governo da casa algum tanto, e muito à leitura da copiosa livraria, parte de seus avós paternos, e a maior dos doutores em cânones, cónegos, desembargadores do eclesiástico, catedráticos, chantres, arcediagos e bispos, parentela ilustríssima de sua mãe.
+Casou o morgado, ao tocar pelos vinte anos, com sua segunda prima D. Teodora Barbuda de Figueiroa, morgada de Travanca, senhora de raro aviso, e muito apontada em amanho de casa, e ignorante mais que o necessário para ter juízo.
+Unidos os dois morgadios, ficou sendo a casa de Calisto a maior da comarca; e, com o rodar de dez anos, prosperou a olho, tendo grande parte neste incremento a parcimónia a que o morgado circunscreveu seus prazeres, e, por sobre isto, o génio cainho e apertado de D. Teodora.
+Remenda teu pano, chegar-te-á ao ano, dizia a morgada de Travanca; e, aferrada ao seu adágio predilecto, remendava sempre, e cerzia com perfeição justamente admirada entre a família, e falada como exemplo na área de quatro léguas, ou mais.
+Enquanto ela recortava o fundilho ou apanhava a malha rota da pinga, o marido lia até noite velha, e adormecia sobre os in-folios, e acordava a pedir contas à memória das riquezas confiadas.
+Os livros de Calisto Elói eram cronicões, histórias eclesiásticas, biografias de varões preclaros, corografias, legislação antiga, forais, memórias da Academia Real da História Portuguesa, catálogos de reis, numismática, genealogias, anais, poemas de cunho velho, etc.
+Respeito a idiomas estranhos, dos vivos conhecia o francês muito pela rama; porém, o latim falava-o como língua própria, e interpretava correntemente o grego.
+Memória pronta, e cultivada com aturado e indigesto estudo, não podia sair-se com menos de um erudito em história antiga, e repositório de notícias miúdas sobre factos e pessoas de Portugal.
+Consultavam-no os sábios transmontanos como juiz indeclinável em decifrar cipos e inscrições, em restabelecer épocas e sucessos controvertidos por autores contraditórios.
+Sobre castas e linhagens, coisa que ele tirasse a limpo, não dava pega a dúvida nenhuma. Ia ele desenterrar geração já sepultada há setecentos anos, e provar que, na era de 1201, D. Fuas Mendo casara com a filha de um mesteiral, e D. Dorzia se havia sujado casando mofinamente com um pagem da lança de seu irmão D. Paio Ramires.
+Farpeados pela viperina língua dele, os fidalgos provincianos retaliavam quanto podiam a prosápia dos Benevides, propalando que naquela família se gerara um clérigo grande femeeiro, beberrão e lambaz, a quem o santo arcebispo D. Frei Bartolomeu dos Mártires, uma vez, perguntara que nome havia; e, como quer que o padre respondesse Onofre de Benevides, o arcebispo acudira dizendo: Melhor vos acertará com o nome, segundo a vida que fazeis, quem vos chamará de Bene bibis e male vivis.»[1] O remoque, talvez por ser de santo, era medianamente engraçado e pouco para afligir; assim mesmo Calisto Elói, à conta desta injúria dos fidalgos comarcãos, tanto lhes esgravatou nas gerações, que descobriu radicalmente serem quase todas de má casta.
+É supérfluo dizer-se a qual doutrinação política pendia o ânimo do morgado da Agra de Freimas. Estava com a decisão das cortes de Lamego. Fizera-se nelas, e cuidava ter assistido, em 1145, àquele congresso mitológico, e ter conclamado com Gonçalo Mendes da Maia, o Lidador, e com Lourenço Viegas, o Espadeiro: “Nos liberi sumus, rex noster liber est”.[2] Todavia, se assim fossem todos os doutrinários políticos, a gente apodrecia na mais refestelada paz, e supina ignorância do andamento da humanidade.
+Calisto Elói de Silos e Benevides de Barbuda queria que se venerasse o passado, a moral antiga como o monumento antigo, as leis de João das Regras e Martim de Ocem, como o mosteiro da Batalha, as ordenações manuelinas como o convento dos Jerónimos.
+O mal que daqui surdia ao género humano, a falar verdade, era nenhum. Este bom fidalgo, se lhe tirassem o sestro de esmiuçar desdouros nas gerações das famílias patriciatas, era inofensiva criatura. Deste senão, a causa foi um chamado Livro-negro, que herdara de seu tio avô Marcos de Barbuda Tenazes de Lacerda Falcão, genealógico pavoroso, o qual gastara sessenta dos oitenta anos vividos, a coligir borrões, travessias, mancebias, adultérios, coitos danados, e incestos de muitas famílias naquelas satânicas costaneiras, denominadas “Livro-negro das linhagens de Portugal”.
+Em suma, Calisto era legitimista quieto, calado, e incapaz de empecer a roda do progresso, com tanto que ele não lhe entrasse em casa, nem o quisesse levar consigo.
+Prova cabal de sua tolerância foi ele aceitar em 1840 a presidência municipal de Miranda. Na primeira sessão camarária falou de feitio e jeito, que os ouvintes cuidavam estar escutando um alcaide do século XV levantado do seu jazigo da catedral. Queria ele que se restaurassem as leis do foral dado a Miranda pelo monarca fundador. Este requerimento gelou de espanto os vereadores; destes, os que puderam degelar-se, riram na cara do seu presidente, e emendaram a galhofa dizendo que a humanidade havia já caminhado sete séculos depois que Miranda tivera foral.
+- Pois se caminhou, - replicou o presidente, - não caminhou direita. Os homens são sempre os mesmos e quejandos; as leis devem ser sempre as mesmas.
+- Mas... - retorquiu a oposição ilustrada, - o regimen municipal expirou em 1211, sr. presidente! V. Exª não ignora que há hoje um código de leis comuns de todo o território português, e que desde Afonso II se estatuíram leis gerais. V. Exª de certo leu isto...
+- Li - atalhou Calisto de Barbuda, - mas reprovo!
+- Pois seria útil e racional que V. Exª aprovasse.
+- Útil a quem? - perguntou o presidente.
+- Ao município -, responderam.
+- Aprovem os srs. vereadores, e façam obra por essas leis, que eu despeço-me disto. Tenho o governo de minha casa, onde sou rei e governo, segundo os forais da antiga honra portuguesa.
+Disse; saiu; e nunca mais voltou à câmara.
      
 
      
      
-    III
-    O demónio parlamentar descobre o anjo
+II
+Dois candidatos
      
-     Fermentou na mente dos principais lavradores e párocos das freguesias do círculo eleitoral a ideia de levar ao parlamento o morgado da Agra de Freimas.
-     Os deputados eleitos até àquele ano no círculo de Calisto Elói, eram coisas que os constituintes realmente não tinham enviado ao congresso legislativo. Pela maior parte, os representantes dos mirandenses tinham sido uns rapazes bem falantes, areopagitas do café Marrare, gente conhecida pela figura desde o botequim até S. Carlos, e afeita a beber na Castalia, quando, para encher a veia, não preferia antes beber da garrafeira do Mata, ou outro que tal ecónomo dos apolíneos dons.
-     Em geral, aquela mocidade esperançosa, eleita por Miranda e outros sertões lusitanos, não sabia topograficamente em que parte demoravam os povos seus comitentes, nem entendia que os aborígenes das serranias tivessem mais necessidades que fazerem-se representar, obrigados pelo regimen da constituição. Se algum influente eleitoral, prelibando as delícias do hábito de Cristo, obrigara a urna e o senso comum a gemer nos apertos do doloroso parto do peralta lisboeta, o tal influente considerava-se idóneo para escrever ao deputado incumbindo-lhe trabalhar na nomeação dum vigário chamorro, ou outra coisa, que foi denominação de bando político, em tempo que a política não sabia sequer dar-se nomes decentes. Pois o deputado não respondia à carta do influente, nem o requerente sabia onde procurá-lo, fora do Marrare.
-     Por muitos factos desta natureza conspiraram os influentes do círculo de Miranda contra os delegados do governo; e a ideia de eleger o morgado foi recebida entusiasticamente por todos aqueles que o ouviram falar no adro da igreja, e por quantos houveram notícias da sua parlenda.
-     O partido, que o mestre-escola ganhara de eloquente assalto, cedeu ao império das razoáveis conveniências, e conglobou-se na maioria. A verbosidade, porém, do professor não ficou despremiada, sendo nomeado secretário da junta de paróquia.
-     Resistiu Calisto de Barbuda tenazmente às solicitações dos lavradores, que o procuraram com o mestre-escola à frente, facto que muito honra este desinteresseiro e reportado funcionário. neste encontro, o professor excedeu o juízo avantajado que ele propriamente fazia de sua vocação oratória. Mostrou as fauces do abismo escancaradas para tragarem Portugal, se os sábios e virtuosos não acudissem a salvar a pátria moribunda.
-     Calisto Elói, enternecido até às lágrimas pela sorte da terra de D. João I, voltou-se para a esposa, e disse, como o agricultor Cincinatus:
-     - Aceito o jugo! Assaz receio, mulher, que os nossos campos sejam mal cultivados este ano...
-     Estavam próximas as eleições.
-     A autoridade, assim que soube da resolução do morgado da Agra, preveniu o governo da inutilidade da luta.
-     Não obstante, o ministro do reino redobrou instâncias e promessas, no intuito de vingar a candidatura de um poeta de Lisboa, mancebo de muitas promessas ao futuro, que tinha escrito revistas de espectáculos, e recitava versos dele ao piano, cuja falta ou demasia de sílabas a bulha dos sonoros martelos disfarçava.
-     Redarguiu o administrador do concelho ao governador civil, que pedia sua demissão para não sofrer a inevitável e desairosa derrota.
-     Quis assim mesmo o governo aliciar no círculo algum proprietário, que contraminasse a influência do candidato legitimista, fazendo-se eleger. Alguns lavradores, menos aferrados à candidatura de Calisto, lembraram à autoridade o professor de instrução primária, estropeando frases dos discursos dele, proferidos na botica. O administrador riu-se, e mandou-os bugiar, como parvoinhos que eram.
-     Por derradeiro, o governador civil fez saber ao ministério que os povos de Vimioso, Alcaniças e Miranda se haviam levantado com selvagem independência e tintam fugido com a urna para os desfiladeiros das suas serras. Pelo conseguinte, não pôde ser proposto o poeta, que beliscado na sua vaidade assanhou-se contra o governo, escrevendo umas feras objurgatórias, as quais, se tivessem gramática à proporção do fel, o governo havia de pôr as mãos na cabeça e demitir-se.
-     À excepção de uma lista, o morgado da Agra de Freimas teve-as todas. A que não tinha o nome simpático aos eleitores, votava em Brás Lobato, professor de instrução primária, secretário da junta de paróquia, e ex-sargento das milícias de Mirandela. Parece que votara em si o mestre-escola. A final, maculou a alvura do nobilíssimo desprendimento com que perorara em pró da eleição de Calisto! Fragilidade humana!
-     Principiou, desde logo, o morgado eleito a refrescar a memória com as suas leituras de história grega e romana; era isto entrouxar ciência e enfeixar flores para o parlamento. Depois, releu a legislação dos bons tempos de Portugal, afim de restaurar os costumes desbaratados, fazendo remoçar as leis, que haviam sido o tabernáculo da moral humana guardado pelo temor de Deus. Tosquenejou muitas noites sobre os bacamartes pulvéreos; e, desde que a manhã raiava até horas de almoço, ia à margem do Douro, que lhe lambia a ourela da quinta, declamar, como Demóstenes nas ribas marítimas, ao estridor de uma açude e das rodas de duas azenhas. Os moleiros, que o viam bracejar, e lhe ouviam o vozeamento, benziam-se, pensando que o sábio treslera, ou coisa má lhe entrara no corpo. A sr.a D. Teodora Figueiroa, vendo o marido assim tresnoitado, seguia-o às vezes, de madrugada, espreitava-o de um cabeço sobranceiro ao rio, e benzia-se também, dizendo: «Dão-me com o homem doido!»
-     Chegou o tempo de partir para a capital.
-     O deputado mandou adiante por almocreve duas cargas de livros, nenhum dos quais tinha menos de cento e cinquenta anos.
-     Seguia-se, na conduta dos machos portadores, uma carga de presunto e orelheira, substância quotidiana da alimentação de Calisto Elói.
-     Depois, outra carga de ancoretas de vinho velho, e na entrecarga uma garrafeira com duas dúzias de garrafas de vinho, que competia antiguidade com a fundação da companhia.
-     A guarda-roupa do procurador dos povos era modesta, salvo o chapéu armado, calção de tafetá e espadim, com que ele, na qualidade de fidalgo cavaleiro, costumava contribuir para a majestade das procissões de Miranda, pegando ao palio.
-     A pessoa de Calisto Elói de Silos e Benevides de Barbuda foi em liteira, e chegou a Lisboa ao décimo quinto dia de jornada, trabalhada de perigos, superiores à descrição de que somos capaz.
-     De propósito, saltamos por cima dos pormenores da partida, para não descrever o quadro lastimoso do apartamento de Calisto e Teodora.
-     O apartamento de Teodora e Calisto era título para dois capítulos de lágrimas.
+Desde o qual incidente, o morgado, convicto da podridão dos vereadores em particular, e da humanidade em geral, prometeu a onze retratos, que tinha de onze avós, pintados indignamente, nunca mais tocar o cancro social com suas mãos impolutas.
+neste propósito, nem ao menos consentiu que o vigário lhe mandasse o Periódico dos Pobres do Porto de que era assinante emparceirado com mais quatro reitores limítrofes, e o mestre escola e o boticário.
+Um dia, porém, quando ele saía da festividade de S. Sebastião, cujo mordomo era, deteve-se no adro, onde o rodearam os mais graúdos lavradores da sua freguesia e das vizinhas. Noutro grupo, falava-se do sermão, e da constância do santo capitão das guardas do bárbaro Diocleciano, e da desmoralização do império.
+Estas puxadas reflexões era o boticário que as expendia, coadjuvado pelo mestre de primeiras letras, sujeito que sabia mais história romana do que é permitido a um professor da preciosa e capitalissima ciência de ler, contar e escrever, pelo que o sábio vinha a granjear para a humanidade a ciência, e para ele nove vinténs e meio por dia. E comia o sábio estes nove vinténs e meio quotidianos, e ensinava os rapazes, e sobejava-lhe tempo para ler história! Pudera!... Os governos davam-lhe férias grandes ao estômago, em proveito do espírito. Se ele andasse bem nutrido e sucado de tripa, não aprendia nem ensinava coisa de monta. Que a pobreza é o estímulo das maiores façanhas da inteligência. Paupertas impulit audax [3]. Isto que o Horácio faminto dizia de si, acomodam-no os regedores da coisa pública aos professores de primeiras letras; porém, outros muitos versos do Horácio farto, esses tomam-nos eles para seu uso.
+Estava, pois, o mestre-escola, de parceria com o boticário, a castigar a perversidade dos imperadores romanos, por amor do mártir S. Sebastião, que, segunda vez, acabava de ser frechado no panegírico. neste comenos, abeirou-se deles Calisto Elói, e para logo se calaram as duas capacidades, em referência ao Salomão da terra.
+- Que dizem vocemecês? - perguntou Calisto benignamente. - Continuem.. Parece que falavam do santo.
+- É verdade, sr. Morgado - acudiu o boticário, ajustando os colarinhos percucientes ao lóbulo das orelhas, escarlates do atrito da goma. - Falávamos na malvadez dos imperadores pagãos.
+- Sim! - disse Calisto, com proeminência declamatória, - sim! Horrorosos tempos aqueles foram! Mas os tempos actuais não se diferenciam tanto dos antigos, que possamos, em consciência e ciência, encarecer o presente e praguejar o passado. Diocleciano era pagão, cego à luz da graça: os crimes dele hão de ser contrapesados, e descontados, na balança divina, com a ignorância do delinquente. Ai, porém, dos que prevaricaram fechando olhos à luz da notória verdade, afim de se fingirem cegos! Ai dos ímpios, cujas entranhas estão afistuladas de herpes! No grande dia, funestíssima há de ser a sentença deles, novos Calígulas, novos Tibérios, e Dioclecianos novos!
+Relanceou o farmacêutico uma olhadela esguelhada ao professor, o qual, abanando três vezes e de compasso a cabeça, dava assim a perceber que abundava na admiração do seu amigo e consócio erudito em história romana.
+Obrigado às orelhas do auditório atento, Calisto, em toada de Ezequiel, continuou:
+- Portugal está alagado pela onda da corrupção, que subverteu a Roma imperial! Os costumes de nossos maiores são metidos a riso! As leis antigas, que eram o baluarte das antigas virtudes, dizem os sicofantas modernos, que já não servem à humanidade, a qual, em consequência de ter mais sete séculos, se emancipou da tutela das leis. (Alusão ervada aos vereadores de Miranda, que discreparam do intento restaurador do foral dado por D. Afonso. Vinham a ser sicofantas os colegas municipalenses.) Credite, posteri! - exclamou Calisto Elói com ênfase, nobilitando a postura.
+O latim não lho entenderam, salvo o mestre-escola, que antes de ser sargento de milícias, havia sido donato no convento dominicano de Vila-Real.
+E repetiu: Credite, posteri!
+nesta ocasião, saiu da igreja a sr.a D. Teodora Figueiroa, e disse ao esposo:
+- Vem daí, Calisto. Vamos jantar, que é uma hora, e já lá vai o padre pregador para casa.
+Engoliu o morgado três frases de polpa, que lhe inflavam os bócios, e foi ao jantar, sacrificando-se à regularidade das suas horas inalteráveis de repasto.
+Ficaram o boticário e o professor de primeiras letras, e mais os lavradores, ruminando as palavras do fidalgo, e glosando-as de notas ilustrativas, ao alcance das capacidades.
+Um dos mais graves e anciãos lavradores, regedor, ensaiador e ponto nos entremezes do entrudo exclamou:
+- Aquilo é que dava um deputado às direitas! Um homem assim, se fosse a Lisboa falar ao rei, as contribuições haviam de acabar!
+- Isso não, perdoará vocemecê, tio José do Cruzeiro, - observou o mestre-escola - os impostos é necessário pagá-los. Sem impostos, não haveria rei nem professores de instrução primária (observem a modéstia da gradação!) nem tropa, nem anatomia nacional.
+O mestre-escola havia lido, repetidas vezes no Periódico dos Pobres, as palavras autonomia nacional.
+Falhou-lhe desta feita a memória, lapso que não destoou em nenhumas orelhas, exceptuadas as do boticário, que resmungou:
+- Anatomia nacional!
+- Que é?! - perguntou ao farmacêutico um estudante de clérigo.
+- Parece-me que é asneira! - respondeu o outro com certa indecisão.
+Prosseguiu, concluindo, o mestre-escola:
+- E, portanto os tributos, tio José do Cruzeiro, são necessários ao estado como a água aos milhos. Ora, agora, que há muito quem bebe o suor do povo, isso há; e aqueles, que deviam ser bem pagos, são os que menos comem da fazenda nacional. Aqui estou eu, que sou um funcionário indispensável à pátria, e receberia cento e noventa réis por dia, se não trouxesse rebatidos seis recibos a trinta e seis por cento, de modo que venho a receber seis e cinco! Que país!... O senhor morgado disse bem: estamos chegados aos tempos dos Dioclecianos e Calígulas!
+O auditório já vacilava em decidir qual dos dois era mais talhado para ir falar ao rei a Lisboa, se Calisto, se o mestre escola.
+     
+
+     
+     
+III
+O demónio parlamentar descobre o anjo
+     
+Fermentou na mente dos principais lavradores e párocos das freguesias do círculo eleitoral a ideia de levar ao parlamento o morgado da Agra de Freimas.
+Os deputados eleitos até àquele ano no círculo de Calisto Elói, eram coisas que os constituintes realmente não tinham enviado ao congresso legislativo. Pela maior parte, os representantes dos mirandenses tinham sido uns rapazes bem falantes, areopagitas do café Marrare, gente conhecida pela figura desde o botequim até S. Carlos, e afeita a beber na Castalia, quando, para encher a veia, não preferia antes beber da garrafeira do Mata, ou outro que tal ecónomo dos apolíneos dons.
+Em geral, aquela mocidade esperançosa, eleita por Miranda e outros sertões lusitanos, não sabia topograficamente em que parte demoravam os povos seus comitentes, nem entendia que os aborígenes das serranias tivessem mais necessidades que fazerem-se representar, obrigados pelo regimen da constituição. Se algum influente eleitoral, prelibando as delícias do hábito de Cristo, obrigara a urna e o senso comum a gemer nos apertos do doloroso parto do peralta lisboeta, o tal influente considerava-se idóneo para escrever ao deputado incumbindo-lhe trabalhar na nomeação dum vigário chamorro, ou outra coisa, que foi denominação de bando político, em tempo que a política não sabia sequer dar-se nomes decentes. Pois o deputado não respondia à carta do influente, nem o requerente sabia onde procurá-lo, fora do Marrare.
+Por muitos factos desta natureza conspiraram os influentes do círculo de Miranda contra os delegados do governo; e a ideia de eleger o morgado foi recebida entusiasticamente por todos aqueles que o ouviram falar no adro da igreja, e por quantos houveram notícias da sua parlenda.
+O partido, que o mestre-escola ganhara de eloquente assalto, cedeu ao império das razoáveis conveniências, e conglobou-se na maioria. A verbosidade, porém, do professor não ficou despremiada, sendo nomeado secretário da junta de paróquia.
+Resistiu Calisto de Barbuda tenazmente às solicitações dos lavradores, que o procuraram com o mestre-escola à frente, facto que muito honra este desinteresseiro e reportado funcionário. neste encontro, o professor excedeu o juízo avantajado que ele propriamente fazia de sua vocação oratória. Mostrou as fauces do abismo escancaradas para tragarem Portugal, se os sábios e virtuosos não acudissem a salvar a pátria moribunda.
+Calisto Elói, enternecido até às lágrimas pela sorte da terra de D. João I, voltou-se para a esposa, e disse, como o agricultor Cincinatus:
+- Aceito o jugo! Assaz receio, mulher, que os nossos campos sejam mal cultivados este ano...
+Estavam próximas as eleições.
+A autoridade, assim que soube da resolução do morgado da Agra, preveniu o governo da inutilidade da luta.
+Não obstante, o ministro do reino redobrou instâncias e promessas, no intuito de vingar a candidatura de um poeta de Lisboa, mancebo de muitas promessas ao futuro, que tinha escrito revistas de espectáculos, e recitava versos dele ao piano, cuja falta ou demasia de sílabas a bulha dos sonoros martelos disfarçava.
+Redarguiu o administrador do concelho ao governador civil, que pedia sua demissão para não sofrer a inevitável e desairosa derrota.
+Quis assim mesmo o governo aliciar no círculo algum proprietário, que contraminasse a influência do candidato legitimista, fazendo-se eleger. Alguns lavradores, menos aferrados à candidatura de Calisto, lembraram à autoridade o professor de instrução primária, estropeando frases dos discursos dele, proferidos na botica. O administrador riu-se, e mandou-os bugiar, como parvoinhos que eram.
+Por derradeiro, o governador civil fez saber ao ministério que os povos de Vimioso, Alcaniças e Miranda se haviam levantado com selvagem independência e tintam fugido com a urna para os desfiladeiros das suas serras. Pelo conseguinte, não pôde ser proposto o poeta, que beliscado na sua vaidade assanhou-se contra o governo, escrevendo umas feras objurgatórias, as quais, se tivessem gramática à proporção do fel, o governo havia de pôr as mãos na cabeça e demitir-se.
+À excepção de uma lista, o morgado da Agra de Freimas teve-as todas. A que não tinha o nome simpático aos eleitores, votava em Brás Lobato, professor de instrução primária, secretário da junta de paróquia, e ex-sargento das milícias de Mirandela. Parece que votara em si o mestre-escola. A final, maculou a alvura do nobilíssimo desprendimento com que perorara em pró da eleição de Calisto! Fragilidade humana!
+Principiou, desde logo, o morgado eleito a refrescar a memória com as suas leituras de história grega e romana; era isto entrouxar ciência e enfeixar flores para o parlamento. Depois, releu a legislação dos bons tempos de Portugal, afim de restaurar os costumes desbaratados, fazendo remoçar as leis, que haviam sido o tabernáculo da moral humana guardado pelo temor de Deus. Tosquenejou muitas noites sobre os bacamartes pulvéreos; e, desde que a manhã raiava até horas de almoço, ia à margem do Douro, que lhe lambia a ourela da quinta, declamar, como Demóstenes nas ribas marítimas, ao estridor de uma açude e das rodas de duas azenhas. Os moleiros, que o viam bracejar, e lhe ouviam o vozeamento, benziam-se, pensando que o sábio treslera, ou coisa má lhe entrara no corpo. A sr.a D. Teodora Figueiroa, vendo o marido assim tresnoitado, seguia-o às vezes, de madrugada, espreitava-o de um cabeço sobranceiro ao rio, e benzia-se também, dizendo: «Dão-me com o homem doido!»
+Chegou o tempo de partir para a capital.
+O deputado mandou adiante por almocreve duas cargas de livros, nenhum dos quais tinha menos de cento e cinquenta anos.
+Seguia-se, na conduta dos machos portadores, uma carga de presunto e orelheira, substância quotidiana da alimentação de Calisto Elói.
+Depois, outra carga de ancoretas de vinho velho, e na entrecarga uma garrafeira com duas dúzias de garrafas de vinho, que competia antiguidade com a fundação da companhia.
+A guarda-roupa do procurador dos povos era modesta, salvo o chapéu armado, calção de tafetá e espadim, com que ele, na qualidade de fidalgo cavaleiro, costumava contribuir para a majestade das procissões de Miranda, pegando ao palio.
+A pessoa de Calisto Elói de Silos e Benevides de Barbuda foi em liteira, e chegou a Lisboa ao décimo quinto dia de jornada, trabalhada de perigos, superiores à descrição de que somos capaz.
+De propósito, saltamos por cima dos pormenores da partida, para não descrever o quadro lastimoso do apartamento de Calisto e Teodora.
+O apartamento de Teodora e Calisto era título para dois capítulos de lágrimas.
      
 
      
