@@ -474,15 +474,15 @@ Depois, suspirou, e cheirou rapé.
 
      
      
-    XII
-    O anjo Custódio
+XII
+O anjo Custódio
      
-     Santa audácia! Bizarra índole de antigo cavaleiro, que abriga no peito a generosidade com que os heróis dos Lobeiras, Barros, e Morais se lançavam às aventurosas lides, no intento de corrigir vícios e endireitar as tortuosidades da humana maldade!
-     Não desanimou Calisto Elói, tão desabridamente rebatido por D. Catarina Sarmento.
-     Averiguou quem fosse o galã daquela cega dama, e facilmente lho nomearam. Era um gentil moço, ouzeiro e vezeiro de semelhantes baldas, enfatuado delas, e respondendo por si com sabre ou florete, quando gente intrometida em vidas alheias lhe falava à mão.
-     O informador do morgado explanou difusamente as qualidades do sujeito, relatando as vítimas, e os acutilados na defesa delas.
-     Ocorreu à memória de Calisto aquela apostólica e heróica intrepidez de fr. Bartolomeu dos Mártires, quando foi a defrontar-se com um criminoso e façanhudo balio, que prometia engolir o arcebispo de Braga, e o colégio dos cardeais com o próprio papa, se necessário fosse! Grande coisa é ter lido os bons clássicos, se desejamos saber a língua portuguesa, e criar alentos para atacar velhacos! Aí vai o esforçado Calisto Elói de Silos em demanda de D. Bruno de Mascarenhas. Um escudeiro anuncia ao fidalgo um ratazana.
-     - Quem é um ratazana? - pergunta D. Bruno.
+Santa audácia! Bizarra índole de antigo cavaleiro, que abriga no peito a generosidade com que os heróis dos Lobeiras, Barros, e Morais se lançavam às aventurosas lides, no intento de corrigir vícios e endireitar as tortuosidades da humana maldade!
+Não desanimou Calisto Elói, tão desabridamente rebatido por D. Catarina Sarmento.
+Averiguou quem fosse o galã daquela cega dama, e facilmente lho nomearam. Era um gentil moço, ouzeiro e vezeiro de semelhantes baldas, enfatuado delas, e respondendo por si com sabre ou florete, quando gente intrometida em vidas alheias lhe falava à mão.
+O informador do morgado explanou difusamente as qualidades do sujeito, relatando as vítimas, e os acutilados na defesa delas.
+Ocorreu à memória de Calisto aquela apostólica e heróica intrepidez de fr. Bartolomeu dos Mártires, quando foi a defrontar-se com um criminoso e façanhudo balio, que prometia engolir o arcebispo de Braga, e o colégio dos cardeais com o próprio papa, se necessário fosse! Grande coisa é ter lido os bons clássicos, se desejamos saber a língua portuguesa, e criar alentos para atacar velhacos! Aí vai o esforçado Calisto Elói de Silos em demanda de D. Bruno de Mascarenhas. Um escudeiro anuncia ao fidalgo um ratazana.
+- Quem é um ratazana? - pergunta D. Bruno.
      - É um sujeitório - diz o criado, vestido ratonamente, e não diz o nome, porque V. Exª o não conhece.
      - Que quer ele?
      - Falar com V. Exª
@@ -1740,36 +1740,35 @@ Depois, suspirou, e cheirou rapé.
      XXXIV - Perdida!
      XXXV - A felicidade infernal do crime XXXVI- Saldo de contas conjugal 
      
-     Conclusão
+     
      
 
      
      
      NOTAS
      
-     [1] Bebes bem e vives mal. Fr. Luís de Sousa confirma este caso, algures, na Vida do arcebispo de Braga.
-     [2] Nós e nosso rei somos livres, etc.
-     [3] L. II, Epist. II, v. 51.
-     [4] O bom vinho alegra o coração do homem.
-     [5] Marinho escreveu no período da usurpação dos Filipes.
-     [6] Duarte Nunes de Leão ainda via os cavaleiros de bronze cujos cavalos deram o nome ao chafariz.
-     Historiando o reinado de D. Fernando, e a invasão de castelhanos em Lisboa, escreve a pag. 205 e seguintes, da primeira parte da crónica dos reis:
-     «...E ardeu toda a rua nova, e a freguesia da Madanela e de S. Gião e toda a judiaria com a melhor parte da cidade. E para memória daquele grande incêndio, tomarão h[~u]as fermosas portas da alfândega da cidade para levarem a Castela quando se fossem. E assi quiserão levar h[~u]s cavaleiros de bronze, mui bem feitos, [~q] stavã no chafariz, a que ficou o nome dos cavalos por cuja boca saía aquela grossa água. Mas os cidadãos prevenirão nisso, e os guardarão [~q] lhos não tomassem, por ser coisa pública, e [~q] sendo levado o terião por afronta. Estes cavalos que... por aquela diferença [~q] os antigos tiverão sobre eles os houveram de conservar os governadores da cidade, nestes dias próximos, como poucos curiosos de antiguidades, mandaram sem propósito tirar, donde tantos tempos estiveram.»
-     [7] Prudência em tudo.
-     [8] Sede prudentes como as serpentes, e simplices como as pombas. “S. Mat.” c. x. v. 16.
-     [9] Coroemo-nos de rosas em quanto elas não fenecem.
-     [10] Gloria aos vencidos.
-     [11] O orador forrageou os elegantes dizeres, que vão sublinhados, na feracissima seara de um livro do sr. dr. A. Aires do Gouveia Osório, intitulado: «A reforma das prisões.»
-     [12] Esta chave de oiro do peregrino discurso foi também roubada dos tesouros do sr. dr. Aires de Gouveia, ministro da justiça. Pag. 150, 2.o vol. da Reforma das prisões.
-     [13] Não sejas por demasia justo.
-     [14] Palavras e frases sublinhadas são plagiatos. O dr. Libório tinha vasta leitura da Reforma das Cadeias do insigne escritor, A. Aires de Gouveia, ministro da justiça, ao fazer desta nota (20 de março de 1865, meia-noite).
-     [15] Já se disse que os primores sublinhados são despejadamente forrageados no livro do sr. dr. Aires de Gouveia.
-     [16] A Reforma das Cadeias, part. I, pag. 26.
-     [17] Ibid., pag. 17.
-     [18] António Ribeiro dos Santos, 1.^o vol., p. 186.- A. Alexis
-     [19] É igual o sentir do padre Manuel Bernardes. Diz assim: «Adverte que as várias disposições e acidentes que tocam ao nosso corpo, pegam o seu modo também ao espírito... Diversa feição e actualidade tem o espírito de quem vai montado em um formoso cavalo, e o do que vai em um desprezível jumento. Se o teu vestido for pobre e roto, repara que o espírito recebe daqui alguma disposição diferente da que tem quando o vestido é novo e asseado: e assim nas mais cousas. (Luz e Calor. “Silva de vários ditames espirituais”.)
-     [20] Se fores a Roma, vive à moda de Roma.
-     [21] Creio que os grandes efeitos desta narrativa foram detidamente estudados e calculados pelo caminho.
+[1] Bebes bem e vives mal. Fr. Luís de Sousa confirma este caso, algures, na Vida do arcebispo de Braga.
+[2] Nós e nosso rei somos livres, etc.
+[3] L. II, Epist. II, v. 51.
+[4] O bom vinho alegra o coração do homem.
+[5] Marinho escreveu no período da usurpação dos Filipes.
+[6] Duarte Nunes de Leão ainda via os cavaleiros de bronze cujos cavalos deram o nome ao chafariz.
+Historiando o reinado de D. Fernando, e a invasão de castelhanos em Lisboa, escreve a pag. 205 e seguintes, da primeira parte da crónica dos reis:
+«...E ardeu toda a rua nova, e a freguesia da Madanela e de S. Gião e toda a judiaria com a melhor parte da cidade. E para memória daquele grande incêndio, tomarão h[~u]as fermosas portas da alfândega da cidade para levarem a Castela quando se fossem. E assi quiserão levar h[~u]s cavaleiros de bronze, mui bem feitos, [~q] stavã no chafariz, a que ficou o nome dos cavalos por cuja boca saía aquela grossa água. Mas os cidadãos prevenirão nisso, e os guardarão [~q] lhos não tomassem, por ser coisa pública, e [~q] sendo levado o terião por afronta. Estes cavalos que... por aquela diferença [~q] os antigos tiverão sobre eles os houveram de conservar os governadores da cidade, nestes dias próximos, como poucos curiosos de antiguidades, mandaram sem propósito tirar, donde tantos tempos estiveram.»
+[7] Prudência em tudo.
+[8] Sede prudentes como as serpentes, e simplices como as pombas. “S. Mat.” c. x. v. 16.
+[9] Coroemo-nos de rosas em quanto elas não fenecem.
+[10] Gloria aos vencidos.
+[11] O orador forrageou os elegantes dizeres, que vão sublinhados, na feracissima seara de um livro do sr. dr. A. Aires do Gouveia Osório, intitulado: «A reforma das prisões.»
+[12] Esta chave de oiro do peregrino discurso foi também roubada dos tesouros do sr. dr. Aires de Gouveia, ministro da justiça. Pag. 150, 2.o vol. da Reforma das prisões.
+[13] Não sejas por demasia justo.
+[14] Palavras e frases sublinhadas são plagiatos. O dr. Libório tinha vasta leitura da Reforma das Cadeias do insigne escritor, A. Aires de Gouveia, ministro da justiça, ao fazer desta nota (20 de março de 1865, meia-noite).
+[15] Já se disse que os primores sublinhados são despejadamente forrageados no livro do sr. dr. Aires de Gouveia.
+[16] A Reforma das Cadeias, part. I, pag. 26.
+[17] Ibid., pag. 17.
+[18] António Ribeiro dos Santos, 1.^o vol., p. 186.- A. Alexis
+[19] É igual o sentir do padre Manuel Bernardes. Diz assim: «Adverte que as várias disposições e acidentes que tocam ao nosso corpo, pegam o seu modo também ao espírito... Diversa feição e actualidade tem o espírito de quem vai montado em um formoso cavalo, e o do que vai em um desprezível jumento. Se o teu vestido for pobre e roto, repara que o espírito recebe daqui alguma disposição diferente da que tem quando o vestido é novo e asseado: e assim nas mais cousas. (Luz e Cal“Silva de vários ditames espirituais”.)
+[20] Se fores a Roma, vive à moda de Roma.
+[21] Creio que os grandes efeitos desta narrativa foram detidamente estudados e calculados pelo caminho.
      
-     Esta obra foi digitalizada pelo grupo Digital Source para proporcionar, de maneira totalmente gratuita, o benefício de sua leitura àqueles que não podem comprá-la ou àqueles que necessitam de meios eletrônicos para ler. Dessa forma, a venda deste e-book ou até mesmo a sua troca por qualquer contraprestação é totalmente condenável em qualquer circunstância. A generosidade e a humildade é a marca da distribuição, portanto distribua este livro livremente.
-     Após sua leitura considere seriamente a possibilidade de adquirir o original, pois assim você estará incentivando o autor e a publicação de novas obras.
+
