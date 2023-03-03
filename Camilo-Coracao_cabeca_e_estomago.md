@@ -13,16 +13,11 @@ A simpatia que o meu defunto amigo granjeou postumamente na república das letra
 O meu amigo António Augusto Teixeira de Vasconcelos achou que Silvestre algumas vezes abusava do vocabulário dos eufemismos. Também me parece que sim. Mas já agora deixemos o defunto com a sua responsabilidade e tenhamos esperanças de que ele se salvará primeiro que o autor da Fany, livro querido das famílias!
 Aqui vem a ponto dizer como Lopo de Vega, na Arte Nueva de Hacer Comedias:
      
-“Sustento en fin lo que escribi y conozco
-
-Que aunque fuera mejor de otra manera,
-
-No tuvieran el gusto que han tenido
-
-
-Por que as veces lo que és contra el justo
-
-Por la misma razón deleita el gusto”.
+“Sustento en fin lo que escribi y conozco  
+Que aunque fuera mejor de otra manera,  
+No tuvieran el gusto que han tenido  
+Por que as veces lo que és contra el justo  
+Por la misma razón deleita el gusto”. 
 
      
 O Autor
@@ -78,12 +73,9 @@ PRIMEIRA PARTE
 CORAÇÃO
 
      
-Coisas há hi, que passam ser sem cridas,
-
-E coisas cridas há sem ser passadas...
-
-Mas o melhor de tudo é crer em Cristo.
-
+Coisas há hi, que passam ser sem cridas,  
+E coisas cridas há sem ser passadas...  
+Mas o melhor de tudo é crer em Cristo.  
 CAMÕES. (Soneto.)
      
 
