@@ -14,9 +14,14 @@ O meu amigo António Augusto Teixeira de Vasconcelos achou que Silvestre algumas
 Aqui vem a ponto dizer como Lopo de Vega, na Arte Nueva de Hacer Comedias:
      
 “Sustento en fin lo que escribi y conozco
+
 Que aunque fuera mejor de otra manera,
+
 No tuvieran el gusto que han tenido
+
+
 Por que as veces lo que és contra el justo
+
 Por la misma razón deleita el gusto”.
      
 O Autor
