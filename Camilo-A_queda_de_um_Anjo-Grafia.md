@@ -25,7 +25,7 @@ Camilo Castelo Branco
 
 
 
-I
+I  
 O herói do conto
 
 Calisto Elói de Silos e Benevides de Barbuda, morgado da Agra de Freimas, tem hoje quarenta e nove anos, por ter nascido em 1815, na aldeia de Cassarelhos, termo de Miranda.
@@ -66,7 +66,7 @@ Disse; saiu; e nunca mais voltou à câmara.
 
 
 
-II
+II  
 Dois candidatos
 
 Desde o qual incidente, o morgado, convicto da podridão dos vereadores em particular, e da humanidade em geral, prometeu a onze retratos, que tinha de onze avós, pintados indignamente, nunca mais tocar o cancro social com suas mãos impolutas.
