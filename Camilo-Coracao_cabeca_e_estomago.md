@@ -4,6 +4,7 @@ Author: Camilo Castelo Branco
 Date: 1862
 Type: Romance
 ---
+
 Advertência do Autor
 à 2ª. Edição
      
@@ -73,7 +74,9 @@ CAMÕES. (Soneto.)
 
      
 SETE MULHERES
+
 I
+
 O meu noviciado de amor passei-o em Lisboa. Amei as primeiras sete mulheres que vi e que me viram.
 A primeira era uma órfã, que vivia da caridade de um ourives, amigo do seu defunto pai. Chamava-se Leontina. Fiz versos a Leontina, sonetos em rima fácil, e muito errados, como tive ocasião de verificar, quando os quis dedicar a outra, dois anos depois.
 Leontina não tinha caligrafia nem ideias; mas os olhos eram bonitos e o jeito de encostar a face à mão tinha encantos.

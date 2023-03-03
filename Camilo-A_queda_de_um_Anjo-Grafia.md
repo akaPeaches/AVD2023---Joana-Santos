@@ -1,5 +1,4 @@
-
-\---
+---
 Title: A Queda de um Anjo
 Author: Camilo Castelo Branco
 Date: 1866
