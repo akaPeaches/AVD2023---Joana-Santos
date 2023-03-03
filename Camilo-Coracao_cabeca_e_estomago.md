@@ -23,6 +23,7 @@ No tuvieran el gusto que han tenido
 Por que as veces lo que és contra el justo
 
 Por la misma razón deleita el gusto”.
+
      
 O Autor
      
@@ -75,10 +76,14 @@ Basta de preâmbulo.
 PRIMEIRA PARTE
           
 CORAÇÃO
+
      
 Coisas há hi, que passam ser sem cridas,
+
 E coisas cridas há sem ser passadas...
+
 Mas o melhor de tudo é crer em Cristo.
+
 CAMÕES. (Soneto.)
      
 
