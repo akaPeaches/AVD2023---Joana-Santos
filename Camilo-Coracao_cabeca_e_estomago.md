@@ -23,11 +23,16 @@ O Autor
      
 PREÂMBULO
      
-- O meu amigo Faustino Xavier de Novais conheceu perfeitamente aquele nosso amigo Silvestre da Silva...
-- Ora, se conheci!... Como está ele?
-- Está bem: está enterrado há seis meses.
-- Morreu?!
-- Não morreu, meu caro Novais. Um filósofo não deve aceitar no seu vocabulário a palavra morte, senão convencionalmente. Não há morte. O que há é metamorfose, transformação, mudança de feito. Pergunta tu ao doutíssimo poeta José Feliciano de Castilho o destino que tem a matéria. Dir-te-á a teu respeito o que disse de Ovídio, sujeito que não era mais material que tu e que o nosso amigo Silvestre da Silva. “Ovídio cadáver”, pergunta o sábio, “onde é que pára?” Tudo isso corre fados misteriosos, como Adão, como Noé, como Rómulo, como nossos pais, como nós, como nossos filhos, rolando pelos oceanos, flutuando nos ares, manando nas fontes, correndo nos rios, agregado nas pedras, sumido nas minas, misturado nos solos, viçando nas ervas, rindo nas flores, recendendo nos frutos, cantando nos bosques, rugindo nas matas, rojando dos vulcões, etc.” Isto, a meu ver, é exacto e, sobretudo, consolador. O nosso amigo Silvestre da Silva, a esta hora, anda repartido em partículas. Aqui faz parte da garganta dum rouxinol; além, é pétala duma tulipa; acolá, está consubstanciado num olho de alface; pode ser até que eu o esteja bebendo neste copo de água que tenho à minha beira e que tu o encontres nos sertões da América, alguma vez, transfigurado em cobra cascavel, disposto a comer-te, meu Faustino.
+
+\- O meu amigo Faustino Xavier de Novais conheceu perfeitamente aquele nosso amigo Silvestre da Silva...
+
+\- Ora, se conheci!... Como está ele?
+
+\- Está bem: está enterrado há seis meses.
+
+\- Morreu?!
+
+\- Não morreu, meu caro Novais. Um filósofo não deve aceitar no seu vocabulário a palavra morte, senão convencionalmente. Não há morte. O que há é metamorfose, transformação, mudança de feito. Pergunta tu ao doutíssimo poeta José Feliciano de Castilho o destino que tem a matéria. Dir-te-á a teu respeito o que disse de Ovídio, sujeito que não era mais material que tu e que o nosso amigo Silvestre da Silva. “Ovídio cadáver”, pergunta o sábio, “onde é que pára?” Tudo isso corre fados misteriosos, como Adão, como Noé, como Rómulo, como nossos pais, como nós, como nossos filhos, rolando pelos oceanos, flutuando nos ares, manando nas fontes, correndo nos rios, agregado nas pedras, sumido nas minas, misturado nos solos, viçando nas ervas, rindo nas flores, recendendo nos frutos, cantando nos bosques, rugindo nas matas, rojando dos vulcões, etc.” Isto, a meu ver, é exacto e, sobretudo, consolador. O nosso amigo Silvestre da Silva, a esta hora, anda repartido em partículas. Aqui faz parte da garganta dum rouxinol; além, é pétala duma tulipa; acolá, está consubstanciado num olho de alface; pode ser até que eu o esteja bebendo neste copo de água que tenho à minha beira e que tu o encontres nos sertões da América, alguma vez, transfigurado em cobra cascavel, disposto a comer-te, meu Faustino.
 O que te eu assevero é que ele deixou de ser Silvestre da silva, há seis meses, posto que os parentes teimam em lhe ter uma lousa sobre o chão, onde o estiraram, com esta mentira: ‘Aqui jaz Silvestre da Silva.’
 Pois é verdade.
 O nosso amigo começou a queixar-se, há de haver um ano, de falta de apetite, e frialdade de estômago, efeito das indigestões. Foi de mal a pior. Desconfiou que passava a outra metamorfose, e deu ordem aos seus negócios da alma com a eternidade. Dos bens terrenos não fez deixação, porque lá estavam os credores, seus presuntivos herdeiros, ainda que alguns deles declinaram a herança a benefício de inventário, lamentando que em Portugal não fosse lei a prisão por dívidas: parece que os irritou a certeza de que o cadáver insolvente não podia ser preso. Em outro ponto te darei mais detida notícia desta catástrofe.
@@ -130,44 +135,76 @@ Eu queria comunicar a exuberância da minha ventura, mas tive sempre para mim qu
 Ao romper de alva, vi que um rancho de meninas desciam ao jardim e colhiam flores. A minha amada ficou à janela conversando com senhoras idosas. “Tragam-me a mim uma rosa de musgo”, disse ela às amigas. E as amigas volveram sem a rosa. Desci ao jardim, colhi duas rosas aljofradas das lágrimas da aurora, pedi licença para lhes oferecer, e disse: “Não as enxuguei, para não privar as florinhas das carícias de um anjo.”
 Este meu dito foi celebrado em Porto Brandão.
 Daqui encetámos um colóquio, em que o meu acanhamento foi digno de lástima. Perguntei-lhe abruptamente onde morava; e ela, com a mais casta naturalidade, respondeu-me:
-- Moro na rua da Rosa das Partilhas, n.º 101, segundo andar.
+
+\- Moro na rua da Rosa das Partilhas, n.º 101, segundo andar.
 Naquele dia vim para Lisboa, visto que o meu amigo se retirava. Quinze dias seguidos fui à Rua da Rosa, e vi sempre fechadas as janelas do segundo andar.
 Defronte morava uma estanqueira. Afreguesei-me para lhe captar a benevolência: e, ao décimo sexto dia, perguntei-lhe quem morava naquela casa.
-- Ali mora um sujeito que é empregado no contrato do tabaco - disse ela.
-- E tem família?
-- Tem sim senhor. Vejo lá umas duas ou três meninas que me parecem irmãs dele, ou coisa parecida.
-- Uma de olhos pretos e cabelos cor de azeviche, será irmã?
-- a falar-lhe a verdade, senhor, a cor que ela tem nos olhos e no cabelo na sei. Ali há uma bonitota, que é mais triste que as outras e está sempre a ler, aos dias santos. As outras têm assim um ar de doidas, que faz rir a gente. Namoram de lenço branco e à meia-noite estão à janela a papaguear para a rua, que é mesmo um escândalo. Que eu, a falar a verdade, meto-me cá com a minha vida e não quero saber quem é, nem o que faz, a vizinhança.
-- Sabe dizer-me onde estão agora?
-- Estão fora da terra; mas onde, não sei. Ontem andavam lá a lavar a casa; é que não tardam aí.
+
+\- Ali mora um sujeito que é empregado no contrato do tabaco - disse ela.
+
+\- E tem família?
+
+\- Tem sim senhor. Vejo lá umas duas ou três meninas que me parecem irmãs dele, ou coisa parecida.
+
+\- Uma de olhos pretos e cabelos cor de azeviche, será irmã?
+
+\- a falar-lhe a verdade, senhor, a cor que ela tem nos olhos e no cabelo na sei. Ali há uma bonitota, que é mais triste que as outras e está sempre a ler, aos dias santos. As outras têm assim um ar de doidas, que faz rir a gente. Namoram de lenço branco e à meia-noite estão à janela a papaguear para a rua, que é mesmo um escândalo. Que eu, a falar a verdade, meto-me cá com a minha vida e não quero saber quem é, nem o que faz, a vizinhança.
+
+\- Sabe dizer-me onde estão agora?
+
+\- Estão fora da terra; mas onde, não sei. Ontem andavam lá a lavar a casa; é que não tardam aí.
 Nesse mesmo dia, à noite, encontrei no Marrare das Sete Portas o cavalheiro que me tinha apresentado à mulher querida, em Porto Brandão. Falámos muito da divertida noitada e nas mulheres que converteram em paraíso terreal a casinha campestre. Ébrio de amor, deixei-me ir ao sabor do coração indiscreto e falei na mulher, cuja imagem me não dera tréguas duma hora ao espírito cobiçoso dela. O sujeito destramente se insinuou na minha confiança e conseguiu que eu lhe dissesse a morada da dama a quem ele me apresentara.
 Riu-se o indivíduo, e sofreou logo a expansão.
-- De que ri Vossa Senhoria? - Perguntei com desgosto.
+
+\- De que ri Vossa Senhoria? - Perguntei com desgosto.
 Deteve-se o homem a cismar, e respondeu:
-- Rio da pouca ou nenhuma penetração da mocidade. Não se recorda de eu lhe ter dito que aquelas senhoras amavam toda a gente?
-- E se o senhor se apaixonar?
-- Apaixonado estou eu.
-- Pois pior. Suponha agora que aquela mulher o menospreza e ridiculiza!
-- Suicido-me!
-- Isso é asneira, Sr. Silvestre! Olhe eu já amei Clotilde.
-- Chama-se Clotilde?
-- Chama. Que nome!, que poesia!, que lirismo!, não acha?
-- Acho!... Clotilde! Há não sei quê das paixões sanguentas da Idade Média neste nome!... Clotilde! Que bem fadado nome! Tem magia!... Clotilde!... Então o senhor amou-a?
-- Amei.
-- E depois?
-- Apaixonei-me. Pedi-lhe o coração exclusivo, e ela disse-me que o exclusivo do coração só o daria com o exclusivo da mão. Entende o fraseado?
-- Perfeitíssimamente. Queria dizer que só amaria exclusivamente o marido.
-- É isso mesmo. Eu era menor, e meu pai negava-me licença para casar. Clotilde era pobre, e eu, sem os benefícios de meu pai, era indigente: Tão inútil homem era eu que fazia versos, e que versos, ó santo Deus!
-- E ela ama poesia?
-- Gostava das décimas e embirrava com as odes. Fiz-lhe muita décima: estão todas impressas no Ramalhete. Vamos ao essencial. A paixão cegou-me. Clotilde, sabedora da repugnância de meu pai, parecia disposta a aproveitar o tempo com outro namoro. Suspeitei esta infernal resolução, e... que passo eu dei, Sr. Silvestre!... que passo!...
-- Que passo deu o senhor?!
-- Casei com ela!
-- O quê?! - exclamei eu, varando de agulhadas nos olhos e nos ouvidos.
-- Casei com Clotilde.
-- Pois Clotilde é casada?...
-- Comigo; há cinco anos, quatro meses e nove dias!
+
+\- Rio da pouca ou nenhuma penetração da mocidade. Não se recorda de eu lhe ter dito que aquelas senhoras amavam toda a gente?
+
+\- E se o senhor se apaixonar?
+
+\- Apaixonado estou eu.
+
+\- Pois pior. Suponha agora que aquela mulher o menospreza e ridiculiza!
+
+\- Suicido-me!
+
+\- Isso é asneira, Sr. Silvestre! Olhe eu já amei Clotilde.
+
+\- Chama-se Clotilde?
+
+\- Chama. Que nome!, que poesia!, que lirismo!, não acha?
+
+\- Acho!... Clotilde! Há não sei quê das paixões sanguentas da Idade Média neste nome!... Clotilde! Que bem fadado nome! Tem magia!... Clotilde!... Então o senhor amou-a?
+
+\- Amei.
+
+\- E depois?
+
+\- Apaixonei-me. Pedi-lhe o coração exclusivo, e ela disse-me que o exclusivo do coração só o daria com o exclusivo da mão. Entende o fraseado?
+
+\- Perfeitíssimamente. Queria dizer que só amaria exclusivamente o marido.
+
+\- É isso mesmo. Eu era menor, e meu pai negava-me licença para casar. Clotilde era pobre, e eu, sem os benefícios de meu pai, era indigente: Tão inútil homem era eu que fazia versos, e que versos, ó santo Deus!
+
+\- E ela ama poesia?
+
+\- Gostava das décimas e embirrava com as odes. Fiz-lhe muita décima: estão todas impressas no Ramalhete. Vamos ao essencial. A paixão cegou-me. Clotilde, sabedora da repugnância de meu pai, parecia disposta a aproveitar o tempo com outro namoro. Suspeitei esta infernal resolução, e... que passo eu dei, Sr. Silvestre!... que passo!...
+
+\- Que passo deu o senhor?!
+
+\- Casei com ela!
+
+\- O quê?! - exclamei eu, varando de agulhadas nos olhos e nos ouvidos.
+
+\- Casei com Clotilde.
+
+\- Pois Clotilde é casada?...
+
+\- Comigo; há cinco anos, quatro meses e nove dias!
 Dito isto, o empregado público, depois duma gargalhada estridente, afectou a mais cómica das seriedades e continuou:
-- O senhor não vá contar isso a ninguém, senão arrisca-se a dar mote para uma farsa, e lembre-se que o personagem mais ridículo dela será o Sr. Silvestre da Silva, com cuja candura eu simpatizo. Quer o senhor namorar uma das minhas cunhadas, se não está disposto a continuar o namoro com minha mulher? Olhe que ambas têm nomes inspiradores: uma é Berta, a outra é Laura. Escolha, que eu coadjuvo-o.
+
+\- O senhor não vá contar isso a ninguém, senão arrisca-se a dar mote para uma farsa, e lembre-se que o personagem mais ridículo dela será o Sr. Silvestre da Silva, com cuja candura eu simpatizo. Quer o senhor namorar uma das minhas cunhadas, se não está disposto a continuar o namoro com minha mulher? Olhe que ambas têm nomes inspiradores: uma é Berta, a outra é Laura. Escolha, que eu coadjuvo-o.
 Creiam que estava corrido, e dei graças a Deus quando se aproximaram da nossa mesa três sujeitos conhecidos do empregado. Assim foi interrompida a conversação, em que a minha pobre vaidade estava sofrendo como em potro de escárnio. Ergui-me, despedi-me, apertei a mão ao marido de Clotilde, e fui rasgar as prosas e versos que escrevera numa  brochura ad ho cenfeixado tudo sob o seguinte título: A Ti!... E mais nada, a tal respeito.
      
      
@@ -191,8 +228,10 @@ Chegou o dia em que ela me havia de mostrar D. Martinha no momento em que mais d
 Desceu a mulata do terceiro ao segundo andar e disse-me: “Siga-me pé ante pé.” Segui-a, e entrei numa alcova, que tinha portas cortinadas para uma saleta. A condutora afastou um todo-nada da cortina e mandou-me espreitar através da vidraça.
 Vi D. Martinha despeitorada e reclinada sobre a otomana. Com os joelhos no estrado estava ele a calçar-lhe as meias nas pernas abandonadas aos seus carinhos. Ele, depois, estendeu-lhe os braços seio acima, cingiu-a pelo pescoço e apoiou a face na porção mais flácida do peito. Ele, depois... “Ele, quem?”, pergunta quem isto ler.
 Era o tio, que dava o vinho de Setúbal aos domingos. Quando saí do observatório, inclinei o ouvido à mulata, que me dizia:
-- É, ou não é, mais digna da sua compaixão do que nunca foi?
-- E de nojo! - acrescentei.
+
+\- É, ou não é, mais digna da sua compaixão do que nunca foi?
+
+\- E de nojo! - acrescentei.
 Dois dias depois, tive de retirar da hospedaria, em razão de ter dito à Sra. D. Martinha que ela não valia as garrafas de Setúbal que lhe dava o incestuoso sexagenário.
 A mulata... (agora me lembro que se chamava Tupinyoyo - que nome tão amável!) ficou de me visitar todos os domingos; mas ao terceiro, depois da promessa, contou-me um aguadeiro de um ricaço, vindo do Brasil, se apaixonou por ela e a levara consigo para o Minho.
 Não mentiu o galego. Três anos depois a vi eu na segunda ordem do Teatro de S. João do Porto, vestida ricamente, ao lado duma grande cabeça, que estava cotada na praça do Porto em dois milhões.
@@ -205,25 +244,42 @@ V
      
 Eu tinha um amigo que se namorara duma modista francesa e me pedia que fosse intérprete do seu coração, na língua de Vítor Hugo. Não me pareceu custoso fingir a língua de Vítor Hugo, sendo a semelhança julgada pela modista. Parece-me que Vítor Hugo não entenderia as minhas cartas escritas no seu idioma; quero, porém, acreditar que a francesa não acharia mais poesia nem mais correcção raciniana no poeta das Orientais.
 As minhas cartas pertenciam ao sistema que os mestres em epistolografia amorosa determinaram para as modistas. Era o sistema da precipitação dos sucessos e da catástrofe. À oitava carta, convencionou-se o encontro do meu amigo com a francesa numa quinta em Carnide, indo ela acompanhada de uma sua amiga na carruagem, que devia esperá-las à porta oriental do Passeio Público.
-- Como há de ser isto?! - disse eu ao meu amigo -; como te hás de tu entender com ela?
+
+\- Como há de ser isto?! - disse eu ao meu amigo -; como te hás de tu entender com ela?
 Cibrão ficou um pouco enleado e respondeu:
-- É verdade!... como hei de eu entendê-la!... Há quinze dias que comprei um dicionário português-francês e uma guia de conversação; mas pouco ou nada sei...
-- Como há de ser isto? Eu acho ridícula a tua posição se , às primeiras palavras da francesa, tens de lhe dizer, numa língua que ela não entende, que não percebes a língua que ela te fala. Vocês afinal acabam por se rirem francamente um do outro, e com o ridículo matam o amor.
-- Vais tu comigo? - acudiu Cibrão, de golpe.
-- Vou; mas, ainda assim, o que faço é aumentar com a minha ida os personagens da farsa. Como queres tu que a francesa me faça a língua do seu coração, se eu suponho que a sua vontade é dizer-te coisas que envergonham dois amantes na presença de terceira pessoa? E calculas tu quanto seria cómico estar eu entre ti e ela compondo para francês e traduzindo para português a linguagem intraduzível dos suspiros? Afinal rir-nos-íamos todos três. A minha opinião é que não vás. Inventa um pretexto, que dê em resultado uma outra entrevista, em que se dispense um longo prefácio de palestra e em que o silêncio seja necessário como recato e cautela. Não vás a sítios em que a natureza campestre te obrigue a discorrer acerca de flores e delícias das tardes estivas. Procura um encontro nas trevas, de modo que a tua inteligência de línguas fique também em trevas, dando-lhe tu em compensação as mais significativas provas de tua sensibilidade, sem alardo de espírito. Às frases responde suspirando. O je vous aime virá sempre a propósito. Aprende a conjugar bem o verbo aimer.
-- Esse já eu sei.
-- Já? Eu amo?
-- J’aime.
-- Eu amarei.
-- J’aimerai.
-- Bem. Je t’aimerai pour la vie, par toujours, éternellement. Entendes?
-- Perfeitamente.
-- O mais que pudesses dizer seria um pleonasmo. Cifra-te nisto. Adão amou Eva, sabendo dizer muito menos, se me não engana o juízo que eu formo da organização das línguas. Os irracionais também se amam sem diálogo, se não devemos chamar diálogo ao gorjeio dos passarinhos e aos bramidos da leoa sedenta de amor, quando o querido lhe ruge da vizinha selva. Imitemos os bichos para sermos naturais alguma vez.
-- Mas afinal - interrompeu Cibrão - que dizes tu?
+
+\- É verdade!... como hei de eu entendê-la!... Há quinze dias que comprei um dicionário português-francês e uma guia de conversação; mas pouco ou nada sei...
+
+\- Como há de ser isto? Eu acho ridícula a tua posição se , às primeiras palavras da francesa, tens de lhe dizer, numa língua que ela não entende, que não percebes a língua que ela te fala. Vocês afinal acabam por se rirem francamente um do outro, e com o ridículo matam o amor.
+
+\- Vais tu comigo? - acudiu Cibrão, de golpe.
+
+\- Vou; mas, ainda assim, o que faço é aumentar com a minha ida os personagens da farsa. Como queres tu que a francesa me faça a língua do seu coração, se eu suponho que a sua vontade é dizer-te coisas que envergonham dois amantes na presença de terceira pessoa? E calculas tu quanto seria cómico estar eu entre ti e ela compondo para francês e traduzindo para português a linguagem intraduzível dos suspiros? Afinal rir-nos-íamos todos três. A minha opinião é que não vás. Inventa um pretexto, que dê em resultado uma outra entrevista, em que se dispense um longo prefácio de palestra e em que o silêncio seja necessário como recato e cautela. Não vás a sítios em que a natureza campestre te obrigue a discorrer acerca de flores e delícias das tardes estivas. Procura um encontro nas trevas, de modo que a tua inteligência de línguas fique também em trevas, dando-lhe tu em compensação as mais significativas provas de tua sensibilidade, sem alardo de espírito. Às frases responde suspirando. O je vous aime virá sempre a propósito. Aprende a conjugar bem o verbo aimer.
+
+\- Esse já eu sei.
+
+\- Já? Eu amo?
+
+\- J’aime.
+
+\- Eu amarei.
+
+\- J’aimerai.
+
+\- Bem. Je t’aimerai pour la vie, par toujours, éternellement. Entendes?
+
+\- Perfeitamente.
+
+\- O mais que pudesses dizer seria um pleonasmo. Cifra-te nisto. Adão amou Eva, sabendo dizer muito menos, se me não engana o juízo que eu formo da organização das línguas. Os irracionais também se amam sem diálogo, se não devemos chamar diálogo ao gorjeio dos passarinhos e aos bramidos da leoa sedenta de amor, quando o querido lhe ruge da vizinha selva. Imitemos os bichos para sermos naturais alguma vez.
+
+\- Mas afinal - interrompeu Cibrão - que dizes tu?
 Aconselhas-me que não vá a Carnide?
-- Parecia-me imprudente...
-- A boa hora me vens pregar prudências! Hei de ir, e tu vais comigo. Prometo dispensar os teus conhecimentos para me fazer entender. Conjugarei o verbo desde o tempo presente do modo indicativo até ao imperativo. Eu darei o braço à francesa e tu ficarás com a outra. A quinta está ajardinada com sombrinhas grutas de murtas; nestas grutas mora o amor; o amor nos ensinará a falar.
-- Sendo assim... vamos.
+
+\- Parecia-me imprudente...
+
+\- A boa hora me vens pregar prudências! Hei de ir, e tu vais comigo. Prometo dispensar os teus conhecimentos para me fazer entender. Conjugarei o verbo desde o tempo presente do modo indicativo até ao imperativo. Eu darei o braço à francesa e tu ficarás com a outra. A quinta está ajardinada com sombrinhas grutas de murtas; nestas grutas mora o amor; o amor nos ensinará a falar.
+
+\- Sendo assim... vamos.
 E fomos.
 A sege das meninas chegou pouco depois da nossa. Saltaram com buliçosa graça; e, sem biocos de cerim6onia ou pudor (pudor!... é o que faltava!), nos tomaram os braços.
 “Je vous aime”, disse Cibrão à risonha criatura, osculando-a base do nariz. “Je vous aimerai ‘ternellement”, prosseguiu ele, levando-a consigo a doces repelões, com a impetuosa ternura que eu imagino em Júpiter, feito boi, para arrebatar a Europa.
@@ -259,14 +315,17 @@ Atrás de mim estava um grupo de homens, que falaram e riam, quando as modistas 
 “[...] Parece incrível! Quando eu a conheci, há quatro anos, estava ela com um estudante brasileiro, que estudava o Curso Superior de Letras. Encontrei-a nas guinguettes, a dançar o cancã com admirável mestria. Depois, o brasileiro endossou-a a um italiano; o italiano deu-a de mão beijada a um tenor; o tenor passou-a ao corifeu dos coristas; e daí começou a descer, e perdi-a de vista. Eis senão quando, dou com ela no armazém da *** com a mais pudica das caras e a mais mesurada das linguagens. Recordei-lhe em termos hábeis o passado, as guinguettes, o cancã, o brasileiro e a caterva magna das dinastias que lhe avassalaram o coração; e ela, com as mais marmóreas das caras, disse-me que eu, se não estava enganado, era um infame. Mas o melhor de tudo é ela ter-se encampado a um provinciano, que por aí anda, conhecido do Cibrão Taveira, a título de menina seduzida por um duque, e diz chamar-se, em Paris, Elise de la Sallete!”
 Riram todos, e eu pus a mão no lado esquerdo, a rebater o coração que partia as costelas e rasgava as membranas. Fitei o homem, que falava ainda, e disse mentalmente: “Se mentes, pagarás a infâmia com a vida!”
 Procurei o meu amigo Cibrão Taveira e contei-lhe o que ouvira. Cibrão, sem escarnecer a minha dor, respondeu com ar sisudo:
-- É verdade o que esse homem disse. Não quis desmentir as tuas presunções, porque sabia que te fazia mal. Eu sei-o da outra, que ela tem na conta de amiga íntima. Ambas são da mesma farinha. Nenhuma delas serve para poetas, que andam no encalço dos anjos. Se te serve assim, dá louvores ao Céu por ela ser quem é. Se queres mulheres para romances e prosas, pede-as à tua imaginação e deixa o mundo real como ele está, que não pode ser melhor.
+
+\- É verdade o que esse homem disse. Não quis desmentir as tuas presunções, porque sabia que te fazia mal. Eu sei-o da outra, que ela tem na conta de amiga íntima. Ambas são da mesma farinha. Nenhuma delas serve para poetas, que andam no encalço dos anjos. Se te serve assim, dá louvores ao Céu por ela ser quem é. Se queres mulheres para romances e prosas, pede-as à tua imaginação e deixa o mundo real como ele está, que não pode ser melhor.
 Nesse mesmo dia fui para Mafra com tenção de morrer de tédio: o sítio era azado; mas a minha robusta organização resistiu.
 Quando voltei a Lisboa, em começo de setembro, tinha chegado a companhia lírica. Um dos figurantes escriturados era o tenor que em Paris sucedera ao pintor seu patrício. A francesa viu-o, reconheceram-se, amaram-se outra vez, e estavam de casa e pucarinho numa sobreloja na Rua do Outeiro.
 Encontrei-me uma vez com eles em casa do Mata, no Cais do Sodré. Aproximei-me dela, que comia um pastel de camarões, e disse-lhe:
-- Posso ter a honra de ser apresentado ao Sr. Duque?
+
+\- Posso ter a honra de ser apresentado ao Sr. Duque?
 Fitaram-me ambos, e a francesa parecia corrida.
 Acrescentei:
-- Vejo que o sedutor por fim cumpriu os deveres de cavalheiro, Sra. Duquesa! Bem sabe quanto me deve ser grata a sua ventura. Agora, em paga do que as suas desgraças me penalisaram, queira a Sra. Duquesa dar-me o prazer de a ver dançar o cancã.
+
+\- Vejo que o sedutor por fim cumpriu os deveres de cavalheiro, Sra. Duquesa! Bem sabe quanto me deve ser grata a sua ventura. Agora, em paga do que as suas desgraças me penalisaram, queira a Sra. Duquesa dar-me o prazer de a ver dançar o cancã.
 O Italiano ergueu-se de salto e arremesso; eu saí da sala devagarzinho; e ele, enquanto a mim, tornou a sentar-se. Fez bem, que eu não era para graças.
 Acabou assim a história das sete mulheres, número cabalístico, de cuja misteriosa influência me ficou a alma um pouco derrancada.
      
@@ -338,11 +397,14 @@ Nesta situação, tão dolorosa como ofensiva do meu orgulho, fui a um baile. N�
 Creio que me não viu, e, se me viu, fez o que fazem as mais inocentes e desartificiosas senhoras quando não querem ver.
 Segui-a. Avizinhei-a nas salas. Ouvi o som de sua voz. Tive indirectamente notícias do papagaio, pedidas por uma outra menina. Convidei-a para uma quadrilha. Vi-lhe um gesto de assentamento, e senti-me brutificar, pensando no que havia de dizer-lhe.
 Destes apertos têm saído grandes tolices e grandes conceitos. Quer me parecer que não fui infeliz falando-lhe deste teor:
-- A providência dos infelizes encaminhou para aqui os meus passos. Eu não sabia que vinha aqui encontrar o anjo que fez da minha vida um suplício. Entrei nestas salas, como Dante, na região das lágrimas, como Trofônio no seu antro, donde não há mais sair com um sorriso nos lábios. V. Exa. Calca aos pés o mais devotado coração que ainda palpitou em peito de homem. Enganei-me, quando a vi, ao relumbrar dos relâmpagos, naquela tarde tempestuosa. Amei-a então, como o nauta suspiroso ama a cruz do adro da sua terra natal. Amei-a como o rouxinol a sombra dos sinceiros. Amei-a como o orvalho a flor e a aragem da tarde as asas iriadas da borboleta.
+
+\- A providência dos infelizes encaminhou para aqui os meus passos. Eu não sabia que vinha aqui encontrar o anjo que fez da minha vida um suplício. Entrei nestas salas, como Dante, na região das lágrimas, como Trofônio no seu antro, donde não há mais sair com um sorriso nos lábios. V. Exa. Calca aos pés o mais devotado coração que ainda palpitou em peito de homem. Enganei-me, quando a vi, ao relumbrar dos relâmpagos, naquela tarde tempestuosa. Amei-a então, como o nauta suspiroso ama a cruz do adro da sua terra natal. Amei-a como o rouxinol a sombra dos sinceiros. Amei-a como o orvalho a flor e a aragem da tarde as asas iriadas da borboleta.
 Paula fitou-me e coçou a testa com o leque.
 Noutro intervalo da dança continuei:
-- Por que não respondeu à minha carta?
-- Era impossível. Eu já dei o meu coração. Por delicadeza lhe não devolvi a sua carta, e peço-lhe que me não escreva outra, que me compromete - respondeu ela.
+
+\- Por que não respondeu à minha carta?
+
+\- Era impossível. Eu já dei o meu coração. Por delicadeza lhe não devolvi a sua carta, e peço-lhe que me não escreva outra, que me compromete - respondeu ela.
 Não me soou bem este galicismo dos lábios de Paula. Eu, em todas as situações da minha vida, quando vejo a língua dos Barros e dos Lucenas comprometida, dou razão ao filósofo francês que, à hora da morte, emendava um solicismo da criada, protestando defender até ao último respiro os foros da Língua. E com que admiração eu leio aquilo do gramático Dumarsais, que, em trances finais de vida, exclamava: “Hélas! Je mén vais... ou je mén vas... car je crois toujours que lún et l’autre se dit ou se disent!”
 Tinha-se achegado de nós o sujeito que lhe dava o braço à entrada. No semblante de Paula conheci o receio de ter sido ouvida pelo cavalheiro, que a fitava com desconfiança.
      
