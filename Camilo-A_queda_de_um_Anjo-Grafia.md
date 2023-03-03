@@ -4,6 +4,7 @@ Author: Camilo Castelo Branco
 Date: 1866
 Type: Romance
 ---
+
 Dedicatória
 
 Il.{mo} e Ex.{mo} SR. António Rodrigues Sampaio
