@@ -1,11 +1,10 @@
-
-\---
+---
 Title: Coração, cabeça e estômago
 Author: Camilo Castelo Branco
 Date: 1862
 Type: Romance
+---
 
-\---
 Advertência do Autor
 à 2ª. Edição
 
