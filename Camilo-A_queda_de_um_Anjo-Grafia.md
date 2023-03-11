@@ -115,6 +115,7 @@ O auditório já vacilava em decidir qual dos dois era mais talhado para ir fala
 
 
 III
+
 O demónio parlamentar descobre o anjo
 
 Fermentou na mente dos principais lavradores e párocos das freguesias do círculo eleitoral a ideia de levar ao parlamento o morgado da Agra de Freimas.
@@ -147,6 +148,7 @@ O apartamento de Teodora e Calisto era título para dois capítulos de lágrimas
 
 
 IV
+
 Asneiras da erudição
 
 Por fins de janeiro, chegou Benevides de Barbuda a Lisboa, e alugou casa no bairro de Alfama, por lhe terem dito que, naquela porção da Lisboa antiga, a cada esquina havia um monumento à espera de arqueólogo competente.
@@ -196,6 +198,7 @@ Com estas zombarias é que em Portugal os sábios são premiados... Se Calisto f
 
 
 V
+
 Estreia parlamentar de Calisto
 
 Antes de apresentar-se na sala das sessões, Calisto Elói de Barbuda leu o Regimento interno da câmara dos deputados, juntamente com um colega transmontano, o abade de Estevães, sujeito de anos, e doutrina monárquico-absolutos.
@@ -234,6 +237,7 @@ O morgado acudiu logo:
 
 
 VI
+
 Virtuosas parvoiçadas
 
 A estreia parlamentar de Calisto de Barbuda fez hiperbólico estrondo nos salões da aristocracia, legitimista, que abriu suas portas ao esperançoso Berrier de Portugal.
@@ -301,6 +305,7 @@ Algumas vozes por entre frouxos de riso: Muito bem! Bravíssimo!
 Eram as ironias dos sublimes engenhos, que, às vezes, não sabem como hão de havê-las com espíritos selváticos do desplante montesinho de Calisto de Barbuda.
 
 VII
+
 Figura, vestido, e outras coisas do homem
 
 Assim que os personagens dos romances começam a ganhar a estima ou aversão de quem lê, vem logo ao leitor a vontade de compor a fisionomia do personagem plasticamente. Se o narrador lhe dá o bosquejo, a imaginativa do leitor aperfeiçoa o que sai muito em sombra e confuso no informe debuxo do romancista.
