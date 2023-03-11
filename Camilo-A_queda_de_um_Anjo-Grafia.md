@@ -279,17 +279,25 @@ O morgado da Agra escorvou-se de rapé, trombeteou a pitada, e orou deste teor:
 Sr. Presidente - continuou o orador, tomando rapé com a sofreguidão de quem teme que o raio inspirativo se arrefente - sr. presidente! Eu tenho o desgosto de ter nascido num país, em que o mestre-escola ganha cento e noventa réis por dia, e as cantarinas, segundo me dizem, ganham trinta e quarenta moedas por noite. Eu sou de um país, sr. presidente, em que se pede ao povo o subsídio literário para pagar com ele as tramóias da Lucrécia Borgia. Eu sou de um país, pobríssimo, em que a veia da nação exangue sofre cada ano a sangria de algumas dúzias de contos para sustentar comediantes, farsistas, funâmbulos e dançarinas impudicas! Sr. presidente, V. Exª sorriu-se, vejo que a câmara está sorrindo, e eu ouso dizer a V. Exª e aos meus colegas, como o poeta mantuano: “sunt lacrimae rerum”. Aqui é o ponto de se carpirem por seus filhos aqueles, que se cuidam muito avantajados em civilização a seus avós. Aqui é o ponto de nos alembrarmos dos israelitas livres, que sorriam em Jerusalém, e choravam depois escravos às margens do rio estranho. Depois será o declamarmos com o épico:
 
 Em Babilónia, sobre os rios, quando 
+
 De ti, Sião sagrada, nos lembramos, 
+
 Ali com grã saudade nos sentamos 
+
 O bem perdido, míseros, chorando.
+
 Os instrumentos músicos deixando
 
 Peço à câmara que repare nos três versos, que completam a quadra e a profecia:
 
 Os instrumentos músicos deixando 
-Nos estranhos salgueiros penduramos,    
+
+Nos estranhos salgueiros penduramos,   
+
 Hic, sr. presidente:
+
 Quando aos cantares que já em ti cantamos 
+
 Nos estavam imigos incitando.
 
 Nos cantares, sr. presidente, é que bate o ponto do meu discurso: (Hilaridade: sussurro nas galerias: o presidente tange a campainha).
@@ -366,6 +374,7 @@ E, passando a pena de ferro na página da crónica, rasgou a linha que dizia Mar
 
 
 VIII
+
 Faz rir o parlamento
 
 Andava o ânimo de Calisto Elói martelado pelo desejo de pôr cobro ao luxo da gente de Lisboa, sendo grande parte neste intento o haverem-lhe os dois pisa-verdes do parlamento metido a riso a sua casaca de briche. Impugnavam-lhe a ideia o abade de Estevães, e outros correligionários cordatos, mais entrados do espírito do século, e convencidos da inutilidade de atravessar represas à torrente caudal da índole de cada época. O deputado de Miranda respondia que viera de sua terra a cauterizar as chagas do corpo social, e não a cobri-las de pachos e lenimentos paliativos em respeito à sensibilidade dos doentes. Rebelde às admoestações sisudas de amigos, que lhe receavam alguma queda mortal no conceito da câmara, Calisto, provocado por um debate sobre importação e direitos de objectos de luxo, pediu a palavra, e o mesmo foi alvorotar alegremente a câmara, desejosa de ouvi-lo.
@@ -408,6 +417,7 @@ Calisto sorriu-se e disse:
 
 
 IX
+
 O doutor do Porto
 
 O dr. Libório de Meireles, sujeito de trinta e dois anos, cara honesta, e posturas contemplativas, reunia os predicados que nos outros países ou passam despercebidos, ou são solenizados pela irrisão pública; mas, em Portugal, tais predicados alçam o homem ao cume da escala política, e dão-lhe escolta de absurdos propícios até onde o parvo laureado quer guindar-se.
@@ -464,6 +474,7 @@ Tenho medo que Deus o não entenda, e nos ponha ambos fora de cambulhada.
 
 
 X
+
 O coração do homem
 
 Entremos no coração de Calisto Elói.
@@ -491,6 +502,7 @@ Aí está um como Daniel à beira da fornalha. Aí está o homem-anjo! Quarenta 
 
 
 XI
+
 Santas ousadias!
 
 Natural coisa é que este sujeito, intangível às carícias do amor, seja severo e intolerante com as fragilidades do coração.
@@ -601,6 +613,7 @@ Depois, suspirou, e cheirou rapé.
 
 
 XII
+
 O anjo Custódio
 
 Santa audácia! Bizarra índole de antigo cavaleiro, que abriga no peito a generosidade com que os heróis dos Lobeiras, Barros, e Morais se lançavam às aventurosas lides, no intento de corrigir vícios e endireitar as tortuosidades da humana maldade!
@@ -715,6 +728,7 @@ Seguiu-se a narrativa do acontecido, e as alegrias do ancião interpoladas de ag
 
 
 XIII
+
 Regeneração
 
 Ó coração sensível! ó pecadora Catarina, que vais agora expiar o teu crime nas agonias da saudade! Aquele Calisto, cuidando que te salvava, matou-te!
@@ -760,6 +774,7 @@ No entanto, a reconhecida senhora, no auge da sua gratidão, jogava a sueca empa
 
 
 XIV
+
 Tentação! Amor! Poesia!
 
 Eis que, a súbitas, do coração de Calisto ressalta a primeira faísca de amor!
@@ -814,8 +829,11 @@ Saberás que mandei trocar os bois barrosãos à feira dos onze, e comprei vacas
 Por mais que recolhesse o espírito vagabundo, Calisto não dava tento destes dizeres de Teodora, encantadores de simplicidade e boa governança de casa. Arrumou a carta, re-abriu o seu António Ferreira, e leu no soneto XXXIII:
 
 Eu vi em vossos olhos novo lume, 
+
 Qu'apartando dos meus a nevoa escura. 
+
 Viram outra escondida fermosura, 
+
 Fóra da sorte e do geral costume...
 
 Ó bella alma innamorata!
@@ -823,19 +841,33 @@ Deitou-se por desoras, e dormitou sobressaltado. Antemanhã espertou com as alvo
 Nunca em sua vida poetara Calisto Elói de Silos. O amor não lhe havia dado o beliscão suavíssimo, que por vezes, abre torrentes de metro da veia ignorada. Eis que o corisco da inspiração lhe vulcaniza o peito. Levanta maquinalmente a mão à fronte, como a palpar a excrescência febril que todo o poeta apalpa no conflito sublimado do estro. Senta-se: pega da pena, e o coração distila por ela este fragmento de madrigal, que, a meu ver, foi o último que o sincero amor sugeriu em peito português:
 
 Senhora de grão primor, 
+
 Meu amor, 
+
 Formosissima deidade, 
+
 Arde meu peito em saudade, 
+
 Quem fui ontem, não sou hoje; 
+
 Minha alegria me foge, 
+
 Se vos olho. 
+
 Já cativo em vós me acolho, 
+
 Havei de mim piedade; 
+
 Sede minha divindade; 
+
 Não leveis a mal que eu chore 
+
 Com tanto que vos adore 
+
 Gentil e nobre menina 
+
 Como Camões a Cat'rina 
+
 E como Ovídio a Corina.
 
 Posto isto, o morgado da Agra relanceou os olhos com desdém para o tabuleiro do almoço, e com muita repugnância, consentiu ao apetite que se desjejuasse com uma linguiça assada, almoço que ele alternava com um salpicão frito.
@@ -857,9 +889,8 @@ Nesta sessão fora dada ao deputado portuense a palavra, na discussão de uma pr
 Ai da pátria, quando os talentos parlamentares se escanzinam e escamam nestas pugnas inglórias!
 
 
-
-
 XV
+
 Ecce iterum crispinus...
 
 Corrido um quarto de hora, fez-se na câmara o silêncio da subterrânea Pompeia. É que o dr. Libório ia falar.
@@ -867,9 +898,13 @@ Corrido um quarto de hora, fez-se na câmara o silêncio da subterrânea Pompeia
 \- Sr. presidente, e senhores deputados da nação portuguesa! - disse ele - Vem-nos agora sob a mão assunto, até aqui pretermitido. [14] Pelo que toca e frisa com cadeias pátrias, direi os cinco estigmas que um estilista de fôlego esculpiu nos frontais desses antros:
 
 INJUSTIÇA!
+
 IMORALIDADE!
+
 IMUNDICIE!
+
 INSULTO!
+
 INFERNO!
 
 Inferno, sr. presidente, inferno dantesco, inferno teológico em que há o ranger de dentes, stridor dentium!
@@ -901,28 +936,44 @@ Deu a hora, sr. presidente. A matéria é tal e tão rica, e para tamanho cavar 
 Calisto Elói contemplou-o com a fixidez de médico, que estuda os sintomas da demência nos olhos do enfermo. Depois, voltando-se contra o abade de Estevães, disse:
 
 \- Eu queria ver como este dr. Libório tem a cabeça por dentro.
+
 E ritmando o compasso com os dedos na tampa da caixa declamou:
 
 Quantos folgam falar a prisca língua
+
 Qual Egas, qual falou, Fuas Roupinho, 
+
 Qual esse conde antigo, que levara 
+
 A vila de Condeixa por compadre! 
+
 Mas como a falam? Põem sua mestria 
+
 Em palavras cediças, termos velhos 
+
 Termos de saibo e mofo, que arrepiam 
+
 Os cabelos da gente... 
+
 Que dizes disto? 
+
 Como chamas a estes?..... 
+
 Que eu não acerto a dar-lhe um nome próprio. 
+
 Que bem quadre a tão râncidos guedelhas? 
+
 Quando estas coisas desvairadas vejo 
+
 Dão-me engulhos de riso, ou já bocejos, 
+
 Como arrepiques certos de grã fome! [18]
 
 
 
 
 XVI
+
 Quantum mutatus!...
 
 À noite, no salão do desembargador Sarmento, soube-se que o morgado da Agra havia de orar no dia seguinte. Entre as pessoas alvoraçadas com a notícia, a mais empenhada em ouvi-lo era D. Adelaide. Ao encontro de Calisto Elói saiu ela pedindo-lhe com requebrada doçura, três entradas na galeria das senhoras, para ela, irmã e pai.
@@ -951,6 +1002,7 @@ Ai! maridos, maridos! Quando a Providência vos enviar mulheres deste raro cunho
 
 
 XVII
+
 In Liborium
 
 Estavam cheias as galerias da câmara.
@@ -1014,6 +1066,7 @@ O orador foi cumprimentado por alguns provincianos velhos.
 
 
 XVIII
+
 Vai cair o anjo!
 
 A respeito do último discurso de Calisto Elói, as gazetas governamentais estamparam que a sala da representação nacional nunca tinha sido testemunha de insolências de tamanha rudeza e tão audaciosa ignorância. Os jornais da oposição liberal disseram que o representante de Miranda, à parte as demasias escolares do seu discurso, dera uma útil, bem que severíssima lição, aos meninos que jogueteam com o país, indo ao santuário das leis bailar em acrobatismos de linguagem, que seriam irrisórios em palestra de estudantes de selecta segunda.
@@ -1083,13 +1136,16 @@ Quem tivesse conhecido, um mês antes, Calisto Elói de Silos e Benevides de Bar
 Irá perder-se aquela alma tão portuguesa, aquele exemplar marido, aquele sacerdote e glorificador dos clássicos lusitanos?
 O amor abrirá no pavimento da câmara um alçapão, onde se afunda aquele grande brilhante, desluzido, mas prometedor de refulgente lume?
 Di meliora piis!
+
 Ó Lisboa!...
+
 Ó mulheres!...
 
 
 
 
 XX
+
 Proh dolor!...
 
 Adelaide, temerosa de algum imprevisto acidente, que a desmerecesse no conceito de Vasco, por causa do morgado da Agra, relatou ao pai o diálogo da antevéspera, e a promessa da poesia para a noite seguinte.
@@ -1117,6 +1173,7 @@ Cairias tu, anjo?
 
 
 XXI
+
 O mordomo das três virtudes cardeais
 
 Era por uma noite escura e fria de abril.
@@ -1170,6 +1227,7 @@ Adelaide, não obstante o coração, quando aquilo ouviu, sentiu-se mal do estô
 
 
 XXII
+
 Outro abismo
 
 Esta pungente lancetada não esvurmou o apostema do peito de Calisto de Barbuda. Desde que qualquer sujeito perde o siso do coração, escusado é esperar que a razão lho restaure: em tão boa hora que ele o recupera depois das amargas provas. O homem, porém, que amanhece tolo aos quarenta e quatro anos, a mim me quer parecer que ao entardecer-lhe a vida a tolice refinará.
@@ -1257,6 +1315,7 @@ Calisto Elói pôde ainda admirar o lídimo português da máxima, e adormeceu.
 
 
 XXIII
+
 Tenta o seu anjo da guarda salvá-lo 
 mediante uma carta da esposa
 
@@ -1301,6 +1360,7 @@ Calisto.»
 
 
 XXIV
+
 A mulher fatal
 
 Às três horas em ponto, parou uma sege de praça, à porta de Calisto Elói de Silos. O boleeiro subiu ao terceiro andar, perguntando se S. Exª estava em casa. O morgado arregaçou com o pente as mechas do cabelo, que lhe escondiam porção das escampadas fontes, apertou os cordões do rob-de-chambre na volta mais airosa da cintura, e desceu ao pátio a receber a visita.
@@ -1404,6 +1464,7 @@ Tornando ao ponto, queria eu dizer, que o morgado da Agra de Freimas não falari
 
 
 XXV
+
 Perdido!
 
 Fecharam-se as câmaras.
@@ -1438,6 +1499,7 @@ Calisto aspirou o aroma das flores, osculou a mão que lhas oferecera, e murmuro
 \- Ah! também eu conheço essas angustias da tragédia de Racine. Quantas vezes eu, nas minhas horas tristes, repetia com a Ifigénia do grande poeta francês, e com o espírito na alma de minha mãe, assim como ela o tinha no aflito rosto da sua:
 
 “Ah! Sous quel astre-cruel avez-vous mis au jour 
+
 Le malheureux objet d'un si tendre amour?”
 
 O primo, continuou ela, conhece perfeitamente Racine e Corneile?
@@ -1454,6 +1516,7 @@ A natureza de Sintra, incluindo os rouxinóis daquelas ramarias, poderia espanta
 
 
 XXVI
+
 E ela amava-o!
 
 Era já pleno estio. Os galãs mais ardidos de Lisboa estanceavam por Sitiais, por Pisões, e por aquelas várzeas de Colares, a engarrafar lirismo para gastarem por salas nas noites de inverno.
@@ -1506,6 +1569,7 @@ Vasco não voltou.
 
 
 XXVII
+
 A saudade e a ciência em diálogo
 
 Dois meses depois de fechado o parlamento, D. Teodora Figueiroa, farta de escrever cartas, e de esperar respostas que lhe iam a razão de uma por dez, mandou chamar aquele Brás Lobato, professor de instrução primária, e, com os olhos vermelhos de chorar, abriu do peito opresso estas palavras:
@@ -1549,6 +1613,7 @@ Aí vem Brás Lobato, caminho de Lisboa.
 
 
 XXVIII
+
 Ingratidão de um deputado
 
 Brás Lobato, antigo sargento de milícias, e antigo borra de frades franciscanos, era legítimo homem para farejar Calisto em Lisboa. Cuidou ele que encontraria o marido de D. Teodora de Figueiroa nos lugares mais celebrados e admirados da capital, segundo é fama nas províncias. Como o não encontrasse na Memória do Terreiro do Paço, foi procurá-lo ao Aqueduto das Águas-Livres. Depois de baldadas estas pesquisas, outro qualquer sujeito desanimaria; Brás Lobato, porém, resolveu ir ao Paço das Necessidades em busca do seu patrício, porque, no seu modo de julgar as correlações dos altos poderes do estado, Calisto Elói devia frequentar regularmente a casa real.
@@ -1641,6 +1706,7 @@ Não pôde ter mão de si o professor: voltou ao limiar da porta, que se fechava
 
 
 XXIX
+
 O demónio em Cassarelhos
 
 Estava D. Teodora presidindo à limpeza do lagar em que se havia de fabricar o azeite, quando Brás Lobato, ainda empoado da jornada, assomou à porta, e chamou de parte a fidalga.
@@ -1788,6 +1854,7 @@ Corre a uma janela; o primo vai depôs ela: afirmam-se na liteira que desce uma 
 
 
 XXX
+
 Como ela o amava!
 
 O morgado previu o seguimento funesto da desabrida recepção e despedida que deu ao mestre-escola.
@@ -1864,6 +1931,7 @@ O demónio da expiação já andava às cavaleiras do homem. A saudade de Ifigé
 
 
 XXXI
+
 Vence o demónio! choram os anjos!
 
 Para distrair-se do suplicio de alguns dias, Calisto Elói, sem consultar a esposa, entretinha-se a ajuntar os cabedais, espalhados por mão de lavradores, e a remir alguns foros, que somaram considerável quantia.
@@ -1937,6 +2005,7 @@ E saiu alegre como o encarcerado da prisão de longos anos. As azas cândidas de
 
 
 XXXII
+
 A virtude de Teodora em paroxismos
 
 Em outubro daquele ano, a frisa dezasseis do teatro de S. Carlos expôs uma cara desconhecida de todos, excepto de alguns raros rapazes da nata social que a tinham visto de relance, entre as aves e flores de Sintra.
@@ -1981,6 +2050,7 @@ Começou Calisto a receber cartas de sua mulher. Algumas, que abriu, não pôde 
 
 
 XXXIII
+
 Escândalos
 
 Abriram-se as câmaras.
@@ -2034,6 +2104,7 @@ No palacete da rua de S. João dos Bem Casados, ficou governando os criados, aqu
 
 
 XXXIV
+
 Perdida!...
 
 Para leitores entendidos na perversidade humana, a carta de Lopo de Gamboa é uma refinada e suja bargantaria, estudada e escrita com um despejo não vulgar em bacharéis daqueles sítios. Aquele homem, se tivesse nascido em terras onde há a centralização dos biltres, morria com um nome para lembrança duradoura.
@@ -2224,6 +2295,7 @@ O patife vencera!
 
 
 XXXV
+
 A felicidade infernal do crime
 
 Recebeu Calisto Elói em Paris a minudenciosa narrativa dos factos acontecidos, e escondeu de Ifigénia a carta de D. Tomásia.
@@ -2237,6 +2309,7 @@ E, por sobre tudo isto, para que ninguém duvide da intervenção diabólica nes
 
 
 XXXVI
+
 Saldo de contas conjugal
 
 Chegou a Paris a boa nova, desacompanhada de pormenores desonrosos. Dizia apenas o feitor do morgado que a fidalga se retirara para Travanca, deixando tudo que encontrara, e levando tudo que trouxera. Lopo de Gamboa industriara o feitor na direcção que havia de dar à carta. Faltou-lhe apurar o desvergonhamento ao extremo de continuar correspondência com o marido de sua prima.
@@ -2249,6 +2322,7 @@ Por esta ocasião, Brás Lobato, relegada a amizade antiga, escreveu ao fidalgo 
 O barão experimentou um mal-estar de espécie nova, que se desvaneceu a pouco e pouco, e só mui levemente se repetiu no dia seguinte. Eu creio que o homem aprendera em Paris dois consolativos versos de Molière:
 
 “Quel mal cela fait-il? la jambe en devient ele 
+
 Plus tortue, après tout, et la taile moins bele”?
 
 Averiguei quanto em mim coube o viver interno de Ifigénia e do primo. Convinha-me descobrir amarguras lá dentro, para tirar delas o sintoma da expiação. Não descobri coisa alguma, que não fosse invejável. O mais que se me deixou ver de novidade foram duas crianças loiras, lindas, alvas de neve, e amimadas entre Ifigénia e Calisto como dois penhores de felicidade infinita.
