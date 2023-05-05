@@ -3,9 +3,11 @@ Title: A Queda de um Anjo
 Author: Camilo Castelo Branco
 Date: 1866
 Type: Romance
+Structure: Dedicatória, Capítulos (I a XXXVI), Conclusão, Índice, Notas
+Revision: Joana Santos
 ---
 
-Dedicatória
+## Dedicatória
 
 Il.{mo} e Ex.{mo} SR. António Rodrigues Sampaio
 
@@ -25,7 +27,7 @@ Camilo Castelo Branco
 
 
 
-I  
+## Capítulo I  
 O herói do conto
 
 Calisto Elói de Silos e Benevides de Barbuda, morgado da Agra de Freimas, tem hoje quarenta e nove anos, por ter nascido em 1815, na aldeia de Cassarelhos, termo de Miranda.
@@ -66,7 +68,7 @@ Disse; saiu; e nunca mais voltou à câmara.
 
 
 
-II  
+## Capítulo II  
 Dois candidatos
 
 Desde o qual incidente, o morgado, convicto da podridão dos vereadores em particular, e da humanidade em geral, prometeu a onze retratos, que tinha de onze avós, pintados indignamente, nunca mais tocar o cancro social com suas mãos impolutas.
@@ -114,7 +116,7 @@ O auditório já vacilava em decidir qual dos dois era mais talhado para ir fala
 
 
 
-III
+## Capítulo III
 
 O demónio parlamentar descobre o anjo
 
@@ -147,7 +149,7 @@ O apartamento de Teodora e Calisto era título para dois capítulos de lágrimas
 
 
 
-IV
+## Capítulo IV
 
 Asneiras da erudição
 
@@ -197,7 +199,7 @@ Com estas zombarias é que em Portugal os sábios são premiados... Se Calisto f
 
 
 
-V
+## Capítulo V
 
 Estreia parlamentar de Calisto
 
@@ -236,7 +238,7 @@ O morgado acudiu logo:
 
 
 
-VI
+## Capítulo VI
 
 Virtuosas parvoiçadas
 
@@ -312,7 +314,7 @@ Sr. presidente gozem nas boas horas os sátrapas da capital os deleites da sua c
 Algumas vozes por entre frouxos de riso: Muito bem! Bravíssimo!
 Eram as ironias dos sublimes engenhos, que, às vezes, não sabem como hão de havê-las com espíritos selváticos do desplante montesinho de Calisto de Barbuda.
 
-VII
+## Capítulo VII
 
 Figura, vestido, e outras coisas do homem
 
@@ -373,7 +375,7 @@ E, passando a pena de ferro na página da crónica, rasgou a linha que dizia Mar
 
 
 
-VIII
+## Capítulo VIII
 
 Faz rir o parlamento
 
@@ -416,7 +418,7 @@ Calisto sorriu-se e disse:
 
 
 
-IX
+## Capítulo IX
 
 O doutor do Porto
 
@@ -473,7 +475,7 @@ Tenho medo que Deus o não entenda, e nos ponha ambos fora de cambulhada.
 
 
 
-X
+## Capítulo X
 
 O coração do homem
 
@@ -501,7 +503,7 @@ Aí está um como Daniel à beira da fornalha. Aí está o homem-anjo! Quarenta 
 
 
 
-XI
+## Capítulo XI
 
 Santas ousadias!
 
@@ -612,7 +614,7 @@ Depois, suspirou, e cheirou rapé.
 
 
 
-XII
+## Capítulo XII
 
 O anjo Custódio
 
@@ -727,7 +729,7 @@ Seguiu-se a narrativa do acontecido, e as alegrias do ancião interpoladas de ag
 
 
 
-XIII
+## Capítulo XIII
 
 Regeneração
 
@@ -773,7 +775,7 @@ No entanto, a reconhecida senhora, no auge da sua gratidão, jogava a sueca empa
 
 
 
-XIV
+## Capítulo XIV
 
 Tentação! Amor! Poesia!
 
@@ -889,7 +891,7 @@ Nesta sessão fora dada ao deputado portuense a palavra, na discussão de uma pr
 Ai da pátria, quando os talentos parlamentares se escanzinam e escamam nestas pugnas inglórias!
 
 
-XV
+## Capítulo XV
 
 Ecce iterum crispinus...
 
@@ -972,7 +974,7 @@ Como arrepiques certos de grã fome! [18]
 
 
 
-XVI
+## Capítulo XVI
 
 Quantum mutatus!...
 
@@ -1001,7 +1003,7 @@ Ai! maridos, maridos! Quando a Providência vos enviar mulheres deste raro cunho
 
 
 
-XVII
+## Capítulo XVII
 
 In Liborium
 
@@ -1065,7 +1067,7 @@ O orador foi cumprimentado por alguns provincianos velhos.
 
 
 
-XVIII
+## Capítulo XVIII
 
 Vai cair o anjo!
 
@@ -1117,7 +1119,7 @@ Em quanto ela confiava da irmã o despeito e aversão com que a deixaram as últ
 
 
 
-XIX
+## Capítulo XIX
 Ó mulheres!...
 
 Seguiram-se horas de insónia. O juízo dava-lhe tratos amaríssimos ao coração. O homem sentava-se na cama, e remexia-se inquieto como se o escárnio o estivesse picando de entre a palha do enxergão.
@@ -1144,7 +1146,7 @@ Di meliora piis!
 
 
 
-XX
+## Capítulo XX
 
 Proh dolor!...
 
@@ -1172,7 +1174,7 @@ Cairias tu, anjo?
 
 
 
-XXI
+## Capítulo XXI
 
 O mordomo das três virtudes cardeais
 
@@ -1226,7 +1228,7 @@ Adelaide, não obstante o coração, quando aquilo ouviu, sentiu-se mal do estô
 
 
 
-XXII
+## Capítulo XXII
 
 Outro abismo
 
@@ -1314,7 +1316,7 @@ Calisto Elói pôde ainda admirar o lídimo português da máxima, e adormeceu.
 
 
 
-XXIII
+## Capítulo XXIII
 
 Tenta o seu anjo da guarda salvá-lo 
 mediante uma carta da esposa
@@ -1359,7 +1361,7 @@ Calisto.»
 
 
 
-XXIV
+## Capítulo XXIV
 
 A mulher fatal
 
@@ -1463,7 +1465,7 @@ Tornando ao ponto, queria eu dizer, que o morgado da Agra de Freimas não falari
 
 
 
-XXV
+## Capítulo XXV
 
 Perdido!
 
@@ -1515,7 +1517,7 @@ A natureza de Sintra, incluindo os rouxinóis daquelas ramarias, poderia espanta
 
 
 
-XXVI
+## Capítulo XXVI
 
 E ela amava-o!
 
@@ -1568,7 +1570,7 @@ Vasco não voltou.
 
 
 
-XXVII
+## Capítulo XXVII
 
 A saudade e a ciência em diálogo
 
@@ -1612,7 +1614,7 @@ Aí vem Brás Lobato, caminho de Lisboa.
 
 
 
-XXVIII
+## Capítulo XXVIII
 
 Ingratidão de um deputado
 
@@ -1705,7 +1707,7 @@ Não pôde ter mão de si o professor: voltou ao limiar da porta, que se fechava
 
 
 
-XXIX
+## Capítulo XXIX
 
 O demónio em Cassarelhos
 
@@ -1853,7 +1855,7 @@ Corre a uma janela; o primo vai depôs ela: afirmam-se na liteira que desce uma 
 
 
 
-XXX
+## Capítulo XXX
 
 Como ela o amava!
 
@@ -1930,7 +1932,7 @@ O demónio da expiação já andava às cavaleiras do homem. A saudade de Ifigé
 
 
 
-XXXI
+## Capítulo XXXI
 
 Vence o demónio! choram os anjos!
 
@@ -2004,7 +2006,7 @@ E saiu alegre como o encarcerado da prisão de longos anos. As azas cândidas de
 
 
 
-XXXII
+## Capítulo XXXII
 
 A virtude de Teodora em paroxismos
 
@@ -2049,7 +2051,7 @@ Começou Calisto a receber cartas de sua mulher. Algumas, que abriu, não pôde 
 
 
 
-XXXIII
+## Capítulo XXXIII
 
 Escândalos
 
@@ -2103,7 +2105,7 @@ No palacete da rua de S. João dos Bem Casados, ficou governando os criados, aqu
 
 
 
-XXXIV
+## Capítulo XXXIV
 
 Perdida!...
 
@@ -2294,7 +2296,7 @@ O patife vencera!
 
 
 
-XXXV
+## Capítulo XXXV
 
 A felicidade infernal do crime
 
@@ -2308,7 +2310,7 @@ E, por sobre tudo isto, para que ninguém duvide da intervenção diabólica nes
 
 
 
-XXXVI
+## Capítulo XXXVI
 
 Saldo de contas conjugal
 
@@ -2334,7 +2336,7 @@ A baronesa, que, digamo-lo depressa, não rejeitou o título do marido, esperava
 
 
 
-Conclusão
+## Conclusão
 
 Deixá-lo ser feliz: deixá-lo. Calisto Elói, aquele santo homem lá das serras o anjo do fragmento paradisíaco do Portugal velho, caiu.
 Caiu o anjo, e ficou simplesmente o homem, homem como quase todos os outros, e com mais algumas vantagens que o comum dos homens.
@@ -2353,7 +2355,7 @@ FIM
 
 
 
-INDICE
+## INDICE
 
 Dedicatória 
 I - O herói do conto 
@@ -2396,7 +2398,7 @@ XXXV - A felicidade infernal do crime XXXVI- Saldo de contas conjugal
 
 
 
-NOTAS
+## NOTAS
 
 [1] Bebes bem e vives mal. Fr. Luís de Sousa confirma este caso, algures, na Vida do arcebispo de Braga.
 [2] Nós e nosso rei somos livres, etc.
